@@ -78,4 +78,46 @@
 
 ​	Say no more; she must die, with all her family!
 
+​	Roger Nowell stood up.Be quiet! He looked at the guards near the door. Take her away, he said. Old Demdike and her granddaughter Alizon must go to the prison at Lancaster Castle.
+
+​	The guards took my grandmother by the arms and carried her out of the door and put her on a horse. Everyone ran out of Ashlar House. They ran after the horses and shouted: kill the witch!
+
+​	I looked for Mr Nowell, but he was on his horse, too. and he followed the guards quickly through the village.
+
+​	Slowly, I followed my mother and James. Malkin Tower was my home, but I didn't want  to go back there. I was a little child, and I wanted someone kind to take care of me.
+
+​	We stayed at home days, because we werer afraid to go out . James sat in front of the fire, with his dog, and talked. Lancaster Castle he said , again and again. My mother hit me and shouted at me because she was angry with the rich men.
+
+​	But after three days, my mother suddenly said, James! We're hungry and we must eat!
+
+​	James didn't answer.
+
+​	My mother went across the room to James and pulled his hair. Get up! she shouted. Go out and find food for us! Your father isn't here now. you must find food for us. She hit him over the head.
+
+​	James stood up slowly. Go out and find food , he said. I must go out and find food.
+
+​	It was dark, and James was out for hours. But in the morning, he came back with a sheep.
+
+​	I went to Barley, James said happily. I got this sheep, and now we can eat.
+
+​	Get up, Jennet, the tenth day of April. My family had some friends, poor people, and on that day they came to Malkin Tower. They came and asked about Old Demdike and Alizon, and they stayed to eat and drink.
+
+​	I help my mother. We cooked the sheep over a big fire, and our visitors ate with us. At the same time, they drank. They sat by the fire and drank, and talked about Lancaster Castle.
+
+​	Let's go there! an old woman cried. Let's go to Lancaster Castle and find Old Demdike and Alizon.
+
+​	We can curse the guards, and break down the door! my mother said.
+
+​	Let's bring them home! said an old man.
+
+​	Jennet, bring the bottle! We need more drink ! shouted my mother.
+
+​	I got up and took more drink to my mother. But I fell over one of the dogs, and the bottle broke on the floor. The drink was gone!
+
+​	You bad child! my mother shouted. You're a witch, too. you know! She got up and began to hit me. She hit me over the head and pulled my hair.An old man laughed, and then everyone laughed.
+
+​	I ran back across the room. I wasn't witch;I was a child, nine years old, and I hated my mother and all her friends! My face felt very hot because I was angry. I left the room and went out of the house. It was afternoon, but the sky was dark with rain. Pendle Hill was dark, too. It sat quietly and wantched me.
+
+​	I'm going to Mr Nowell, I said quietly, to Pendle Hill. I'm going to tell him about my mother and her friends.
+
 ​	
