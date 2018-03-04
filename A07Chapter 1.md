@@ -45,3 +45,37 @@
 ​	We went out of the room and close the door. The shopkeeper smiled at me with his yellow teeth.
 
 ​	Wonderful, sir, isn't it? he said. The best Elephant Man in England! Hundreds of people come to see him, you know, hundreds ! I take him all over the country, I do!
+
+​	Yes, very interesting, I said . Can I sit down?
+
+​	Yes, sir, of course. Here's a chair. He looked at me, smiling, Would you like a glass of water sir?
+
+​	 Yes, please, I said. Then I looked at the things in the dirty shop. There were two or three bad apples and some old black bananas: that was all. Er no.. no, thank you I'm all right, I said. Did you …did you call the creature Merrick?
+
+​	That's right, sir. Joseph Merrick. The best Elephant Man in England! I take him all over the country, you know. Lost of people want to see him.
+
+​	Yes, I see. Do you get a lot of money?
+
+​	Well, sometimes we do, sir,yes. But it's difficult, you see, sir, because of the police.
+
+​	The police don't like us, you see, sir, sir So we can't stay in a town very long. We usually move every week.
+
+​	Yes, I see . Well , anyway, Mr er?
+
+​	Silcock, sir. Simon Silcock.
+
+​	Yes, well,Mr Silcock, I'm a doctor at the London Hospital. My name is Dr Treves. I think this  er.. this  man Joseph Merrick is very interesting, and I would like to see him at the hospital. I want to look at him more carefully. You see.
+
+​	Yes, sir, I see.But how can he get to the hospital? It's going to be diffcult.
+
+​	Why, man? The hospital's  not far from here.
+
+​	Well, yes, sir. I know. But you see, Merick can't walk very well. He needs help.
+
+​	You can come with him. Do you want more money? Is that it?
+
+​	Well, yes, sir, I do. But you see, people are afraid of him too. In the road, little bods always run him and hit him. Then the police get angry because people are afraid. Sometimes they take us to prison.
+
+​	I see, I said. Well, how can he come to the hospital, then?
+
+​	Bring a cab, sir, said Silcock. You can take him to the hospital in a cab.
