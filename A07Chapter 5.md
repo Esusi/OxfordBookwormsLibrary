@@ -33,3 +33,49 @@
 ​	Merrick did not move. For nearly half a minute he stood and looked at her with his mouth open. Then he spoke , in his strange slow voice.
 
 ​	How ..how do you do , Your Majesty, he said But I don't think the Queen understood him, because he tried to get down on his knees at the same time. It was very difficult for him, bacause of his enormous legs. 
+
+​	No, please， Mr Merrick, do get up, said the Queen. I would like to talk  to you. Can we sit at your table?
+
+​	Yes.yes of course, he said. They sat at the table. She took his left hand, the good hand , in hers. She looked at the hand carefully, and then smiled at Merrick again.
+
+​	I often read about you in the newpapers, she said. You are a very interesting man, Mr Merrick. You have a very difficult life, but people say you're happy. Is it true? Are you happy now?
+
+​	Oh, yes, Your Majesty, yes! said Merrick. I 'm a very happy man! I have a hom here now. and friends, and my books. I'm happy every hour of the day!
+
+​	What a wonderful story! she said. I'm very please to hear it now.,tall me about your reading. I see you have a lot of books here.
+
+​	Oh, Yes,Your Majesty. I love my books, said Merrick .And for nearly half an hour they sat and talked about books. The Queen gave him alittle book, and some red flowers, before she left.
+
+​	After her visit, Merrick began to sing. He could not sing easily, of course, because of his mouth, but all that day there a strange happy noise in his room. He looked at the flowers carefully, and put them on his table,.
+
+​	He had many visits from the Queen, and at Chrismas him a Christmas card.
+
+​	Windsor Castle
+
+​	20th December 1888
+
+​	Dear Josph
+
+​	Here is a small Christmas present for you. I think it looks like me, doesn't it? I do like visiting you very much, and I am going to come to the hospital again in the New Year.
+
+​	Happy Christmas!
+
+​	Your friend
+
+​	Alexandra
+
+​	The present was a picture of Queen Alexandra, with her nameon it. Merrick cried over it, and put it carefully by the bed in his room. Then he sat down and wrote a letter to the Queen. It was the first letter of his life.
+
+​	The London Hospital
+
+​	23rd December 1888
+
+​	My dear Queen
+
+​	Thank you very, very, much for your wonderful card and the beautiful picture. It is the best thing in my room, the very best,the most beautiful thing I have. This is the first Christmas in my life, and my first Christmas present. Perhaps I had a Christmas with my mother once, but I do  not remember it. I have my monther's picture too, and she is beautiful,like you.But now I know many famous ladies and kind people like Dr Treves, and I am a very happy man. I am happy too because I am going to see you in the New Year.
+
+​	Happy Christmas to you,my dear friend.
+
+​	With all my love
+
+​	Joseph Merrick
