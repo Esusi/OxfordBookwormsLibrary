@@ -68,4 +68,7 @@
     * [Chapter 7](A08Chapter 8.md)
     * [Chapter 8](A08Chapter 8.md)
     * [Chapter 9](A08Chapter 9.md)
+* [B0 National Geographic](B0 National Geographic.md)
+    * [B1 Everything to Know About Las Vegas](B1 Everything to Know About Las Vegas.md)
+
 
