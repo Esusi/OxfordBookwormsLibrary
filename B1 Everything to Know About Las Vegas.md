@@ -50,3 +50,40 @@ Vietnam is far from the only place where sand mining is inflicting such damage.A
 
 Why,you might ask, don't we simply mine sand from the Sahara and other deserts? The answer is desert sand doesn't work in concrete the wind eroded grains are too smooth and rounded. As a result, from China to Jamaica, from Liberia to India,sand miners are plundering riverbeds, floodplains,and beaches for the preciou grains.
 
+# Once Written Off for Dead, the Aral Sea Is Now Full of Life
+
+Omirserik Ibragimov fixed his gaze on the hole he had carved out from the Aral Sea. The 25-year-old's hands moved steadily , pulling out a fishing net that he and father had left under the solid, snow-covered surface just three days earlier.
+
+​	After a minute marked by tense silence, two breams emerged from the hole. Then three pike-perches , their silver scales shimmering as they struggled against the net's green meshing.
+
+​	Here comes the gold, Omirserik said with a smile as he continued tugging the net. The pike-perch,with its tender flesh and few bones, is considered to be the most valuable catch, selling for roughly 650 tenge(a little over 2) for a kilogram; local fishermen refer to them as gold fish.
+
+His father ,Kidirbai,worked with his bare hands to free the fish, his knuckles flush from the freezing water. After gathering all their nets, their total catch of the day was about 77 pounds of pike-perch and 44 pounds of bream a sizable haul for a few hours of work.
+
+Just 15 years earlier, this would not have been possible. Once the world's fourth-largest freshwater lake,with an area of some 26000 square miles, the Aral Sea became the victim of the Soviet Union's agricultural policies in the 1950s.Water from its two river sources the Amu Darya and Syr Darya was intentionally diverted for cotton cultivation.
+
+As decreasing water flow into the sea caused a rise in salinity, the abundant freshwater fish species began to die out. By the 1980s, the fishing industry in the Aralsk district once a robust source of employment for the region was wiped out , forcing a mass migration of people. The remaining population was hit by extreme weather, brought on by the dired-out Aral seabed, and deteriorating health.
+
+The people destroyed the sea and then nature took revenge on the people, said Madi Zhasekenow, the director of the Aralsk Regional Museum and Fishermen Museum.
+
+## MASSIVE DISASTER
+
+This repid collapse over less than three decades which environmental scientists say is one of the planet's worst ecological disasters is marked today by the sea's reduced size. Its total area of water, straddling Kazakhstan and Uzbekistan , is now a tenth of its original size. What's left has broken into two distinct bodies: the North and South Aral Seas. In Uzbekistan, the entire eastern basin of the South Aral Sea is completely desiccated, leaving merely a single strip of water in the west.(Learn about other vanishing lakes around the world)
+
+But Kazakhstan's North Aral Sea has seen a happier outcome,thanks to a nearly 86 million project financed in large part by the World Bank. Along with repairs to existing dikes around the basin to prevent spillage, an eight-mile dam was constructed just south of the Syr Darya River. Completed in the summer of 2005,this dam, named Kokaral, surpassed all expectations.It led to an 11 foot increase in water levels after just seven months a goal that scientists initially expected would take three years.
+
+This turnarouond in the North Aral Sea's fate has meant that the fish stocks have returned to its waters, injecting new life into the local communities. Just as goverment policies had doomed the Aral Sea, careful planning and research helped revive at least part of it.\
+
+Kristopher White, a researcher and professor of Almaty's KIMEP University who has studied the  economic impacts of the Aral Sea's desiccation,explained that while the sea will never return to its former size, the 18 percent increase in mass of the North Aral Sea is a testament to how political will and scientific research can benefit the environment.
+
+Anthropogenic ecological damage can be reversed by human interventions, said White.
+
+## OPTIMISM AND HOPE
+
+At its peak in 1957, the Aral Sea produced more than 48 tons of fish, representing roughly 13 percent of the Soviet Union's fish stocks. By the 1980s, due to the rising salinity of the sea, the 20 native species of fish were decimated; coommercial harvests plummeted to zero 1987.The water from the sea receded, and today, the shore is about 12 miles(20 kilomietres )from Aralsk.
+
+​	The major source of employment was gone, and with it optimism and hope for the future, said White. And that really prevailed throughout the region until the completion of this dam.
+
+During those decades, flounder was the only fish that could survive the high-salinity North Aral Sea. But after the Kokaral Dam was finished, the average salinity dropped from 30 grams to 8 grams per  liter, prompting the return of almost two dozen freshwater species through the Syr Darya river.
+
+​	According to the Aralsk Fish Inspection Unit, fish catch in the North Aral Sea has grown six-fold since 2006, when the bulk of the 1360 tons caught was flounder. By 2016 tons of fish was caught, with bream being the most common, followed by roach and the sought-after pike-pech. For 2018, the fishing limit is set at 8200 tons,said head inspector Esenbai Ensepov.
