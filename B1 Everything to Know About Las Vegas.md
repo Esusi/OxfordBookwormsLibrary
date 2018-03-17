@@ -87,3 +87,35 @@ At its peak in 1957, the Aral Sea produced more than 48 tons of fish, representi
 During those decades, flounder was the only fish that could survive the high-salinity North Aral Sea. But after the Kokaral Dam was finished, the average salinity dropped from 30 grams to 8 grams per  liter, prompting the return of almost two dozen freshwater species through the Syr Darya river.
 
 ​	According to the Aralsk Fish Inspection Unit, fish catch in the North Aral Sea has grown six-fold since 2006, when the bulk of the 1360 tons caught was flounder. By 2016 tons of fish was caught, with bream being the most common, followed by roach and the sought-after pike-pech. For 2018, the fishing limit is set at 8200 tons,said head inspector Esenbai Ensepov.
+
+# 10 Strange Things You(Probably)Didn't Know About Earth
+
+The planet we all call hom is even more bizarre than you might imagine.
+
+​	There's no doubt that planet Earth is awe-inspiring. That's even more true for the handful of humans who've seen it from space with their own eyes.
+
+​	We tend to think of ourselves as a weird,tiny little human being on a very large, powerful planet, and there clearly irrelevant to anything that might affect the planet at a planetary scale, says former NASA astronaut Kathryn Sullivan, who in 1984 bacame the first US woman to walk in space.In some ways that's true. But if you step back and look at the planet in total, you see how richly interconnected and interwined all the actual systems are.
+
+​	Even with all its magnificence and majesty, Earth is also just kind of strange.Aside from the fact that it's the only planet known(so far) to support lefe, it has a bunch of inherent quirks, from geophysical weirdness to the landscapes adorning its surface to the organisms it supports. And the  more we learn about Earth's peculiarities, the more we grow to appreciate and treasure its many wonders-starting with the air we breathe.
+
+​	You look back at the Earth and that huge majestic ocean, the atmosphere is a lot more like the fuzz on a tennis ball than some big massive thing, Sullivan says. It's like the wall of a soap bubble, this littlt membrane that envelops this grain of rock and is the reason that critters like us can live.
+
+​	Here are some of the oddest things about this gas-shrouded ball of water and rock we call home.
+
+## The Planet's Poles Flip
+
+​	We all know that North is, well,north—somewhere above Alaska-and south is down near the middle of Antarctica. That will always be true for the planet's geographic poles, but it's only intermittently true for the planet's magnetic poles. Over the past 20 million years, the magnetic poles have flip-flopped every several hundred years or so, which means that if you had a compass in hand about 800000 years ago, it  would tell you that north was in Antarctica.
+
+​	Though scientists are pretty sure Earth's churning, molten iron core powers these polar acrobatics, it's not entirely clear what triggers the actual reversals.The process is gradual and occure over millenia, For now, Earth's north magnetic pole is creeping northward by about 40 miles a year.And given that the last major pole reversal happened 78000 years ago, we are overdue for a flip.
+
+	## It Has a Supersized Moon
+
+Sunday evening marked the most recent rising of the supermoon, but regardless of how large Earth's moon appears in the sky on any given night, it's always among the solar system's most overgrown satellites.Relative to Earth, it's positively enormous, coming in at a quarter as wide as our home planet.
+
+​	The only celestial twosome that bests Earth-moon team in this regard is Pluto and its biggest moon Charon,which really from more of a binary system- a pair of objects twirling around each other—rather than a typical planet moon pair. And thank goodness the moon is so big and so close. If it were smaller or farther away, we would never see total solar eclipses.
+
+## The Biggest Mammal Migration Is Airborne
+
+Yep,you may have thought the 1.3 million wildbeest that hoof their way between Kenya and Tanzania were tops, but you'd be wrong.
+
+​	Millions and millions of bats-giant  fruit bast, to be exact-fly between teh Democratic Republic of Congo and Zambia's Kasanka National Park each year.With more than 10 million of these cat-size, mango-munching, echolocating chiropterans involved, it's the largest known mammal migration on Earth.
