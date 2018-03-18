@@ -155,3 +155,13 @@ Yes! People have at various times in history been sensitized to the ways the bod
 # A new area of neuroscience known as connectomics seeks to give a kind of unifying theory of the brain.Explain what it means, and what the Human Connectome Project is doing
 
 ​	Connectiomics means two differnet things in our community.The one I personally interact with is more about mapping the individual's structures, chiefly cells in the brain. The Human Connectome Project is a bit different because it looks, at roughly three orders of magnitude lower resolution, at the superhighways that connect different regions of the brain and tries to relate those to aspects of brain activity and genetics. What both these views have in common is that they're trying to describe key aspects of brain funciton in terms of its intrinsic structure.
+
+# This Tiny Beetle Is Devastating Forests in the Worst Outbreak Ever
+
+​	Despite being smaller than a grain of rice, mountain pine beetles are causing big problems for pine forests across North America. Bark beetle colonies feed and reproduce on the inner bark of ponderosa and liber pines, wreaking deadly havoc on the tree's ability to circulate nutrients and absorb water. Due to changes in climate and other factors, the recent outbreak of these destructive insects has reached proportions never before seen in recorded history . Alarming estimates from the US Forest Service state that 100 beetle-infested trees fall daily across the United States.
+
+​	To combat this epidemic, Professor Diana Six has made it her mission to crack the genetic code of the  pine tree. She hopes that studying the  relationship between the mountain pine beetle and teh trees they kill will provide us valuable insight into the future of our forests. In this short film made at the International Wildlife Film Festival Filmmakeer Labs, Professor Six walks among the trees and her thoughts on why humans can do more to counteract the effects of climate change.
+
+​	A film by Chris OF Flaherty Todd Amacker Shireen Rahimi, Olivia Schmidt and Tim Treuer . Music by New West Studios and art by Eric Linton . Special thanks to the University of Montana, WWf, Canon USA, and Day's Edge Productions. Generously funded by WWF and Tangled Bank Studios.
+
+​	The Short Film Showcase spotlights exceptional short videos created by filmmakers from around the world and selected by National Geographic editors. We look for work that affirms National Geographic's belief in the power of science, exploration, and storytelling to change the world. To submit a film for consideration, please email .The filmmakers created the content presented, and the opinions expressed are their own, not those of National Geographic Partners.
