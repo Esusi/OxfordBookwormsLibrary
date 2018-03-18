@@ -119,3 +119,39 @@ Sunday evening marked the most recent rising of the supermoon, but regardless of
 Yep,you may have thought the 1.3 million wildbeest that hoof their way between Kenya and Tanzania were tops, but you'd be wrong.
 
 ​	Millions and millions of bats-giant  fruit bast, to be exact-fly between teh Democratic Republic of Congo and Zambia's Kasanka National Park each year.With more than 10 million of these cat-size, mango-munching, echolocating chiropterans involved, it's the largest known mammal migration on Earth.
+
+# This Tiny Beetle Is Devastating Forests In the Worst Outbreak Ever
+
+​	Despite being smaller than a grain of rice, mountain pine beetles are causing big problems for pine forests across North America.Bark beetle colonies feed and reproduce on the inner bark of ponderosa and limber pines, wreaking deadly havoc on the tree's ability to circulate nutrients and absorb water. Due to changes in climate and other factors, the recent outbreak of these destructive insects has reached proportions never before seen in recorded history.Alarming estimates from the US Forest Service state that 100 beetle-infested trees fall daily across the United States.
+
+​	To combat this epidemic, Professor Diana Six has made it her mission to crack the genetic code of the pine tree. She hopes that studying the relationship between the mountain pine beetle and the trees they kill will provide us with valuable insight into the future of our forests.In this short film made at the International Wildlife Film Festival Filmmaker Labs, Professor Six walks among the trees and shares her thoughts on why humans can do more to conuteract the effects of climate change.
+
+​	A film by Chris O'Flaherty, Todd Amacker Shireen Rahimi,Olivia Schmidt, and Tim Treuer.Music by New West Studios and art by Eric Linton.Special thanks to the University of Montana, WWF, Canon USA, and Day's Edge Productions.Generously funded by WWF and Tangled Bank Studios.
+
+​	The Short Film Showcase spotlights exceptional short videos created by filmmakers from around the world and selected by National Geographic editors. We look for work that affirms National Geographic's belief in the power of science, exploration, and storytelling to change the world. To submit a film for consideration, please email sfs@natgeo.com. The filmmakers created the content presented, and the opinions expressed are their own, not those of National Geographic Partners.
+
+# Why the Brain-Body Connection Is More important Than We Think
+
+​	Our brains aren't flying solo; our emotions also come into play when we're interacting with the world, new research finds.
+
+​	The idea that our brains are like giant supercomputers, orchestrating and determining everything we do, has gained ground in recent years. So too have ideas that a short time ago would have been regarded as science fiction, like downloading the Internet directly to our brains, or creating a new kind of human, one with enhanced cognitive powers.
+
+​	In his new book, The Biological Mind, Alan Jasanoff,professor of biological engineering at MIT, explains why this cerebral mystique creates a false dichotomy between the brain and the body and ignores bodily influences on our psychology,from chemicals in the blood to bacteria in the gut.
+
+​	Speaking from his office at MIT, he explained why Red Sox legend Ted Williams has his body frozen;why changes in temperature influence how much Dutch police shoot their guns; and why the idea of downloading the Internet directly into our brains is not a good one.
+
+# One of the underlying concepts in your book is what you call the cerebral mystique.Can you explain what it means and why this view of the brain is distorting our real natures?
+
+​	This book is largely about two  opposite ideas:the biological mind centered on the brain, in which influences from the rest of  the body and outside the body shape what we think and do, and the cerebral mystique, a complex of  sterotyper and ideals about the brain, which tend to treat it as an isolated and all-powerful entity,almost like a modern version of th soul.
+
+​	The problem with having a dualistic view of the brain and its relationship to the physical body, and the physical world, is that it makes us see ourselves as unnaturaly self-contained, both as minds and as autonomous agents. In other words, we view ourselves as things that operate from within, so we're less sensitive to things that influence us on the outside. The idea that the brain is a machine, an abstract entity like a giant supercomputer, has been around for a  while, basically since computers. Other people have used a quantum analogy for the brain. But the idea of the brain as a computer is the most common in this day and age.
+
+# New research suggsts that our emotions, as much as our brains, are key in mediating how we perceive and interact with the world. Tell us about Lauri Nummenmaa's study.
+
+Yes! People have at various times in history been sensitized to the ways the body and brain coordinate emotions. A fascinating study published a few years ago asked participants to map, on pictures of their own body, where they feel sensations as they experience different emotions. The investigators looked at something like 15 variegated emotions and found different bodily maps for each of those things. The first group of participants was Finnish.To test for cultural biases, they looked at a second group, I think Japanese, and found similar responese.
+
+​	Probably the most famous person who has advocated the view  that emotions are key to learning or behavior is Daniel Kahneman. His studies showed that there's this apparently repid, irrational, shoot-from -the-hip way to make decisions, which is important in the behaviroal side of economics. In our field in neuroscience, Antonio Damasio has argued for many  years that there's a loop between the body and the brain. This involves bodily signatures that get tied to different contexts in our enviroment, and steer us towards different behavioral outcomes. This is one way in which the body is cognitively involved in our actions, in a way many people wouldn't believe when confronted with the more mystical view of the  brain as a self-contained machine.
+
+# A new area of neuroscience known as connectomics seeks to give a kind of unifying theory of the brain.Explain what it means, and what the Human Connectome Project is doing
+
+​	Connectiomics means two differnet things in our community.The one I personally interact with is more about mapping the individual's structures, chiefly cells in the brain. The Human Connectome Project is a bit different because it looks, at roughly three orders of magnitude lower resolution, at the superhighways that connect different regions of the brain and tries to relate those to aspects of brain activity and genetics. What both these views have in common is that they're trying to describe key aspects of brain funciton in terms of its intrinsic structure.
