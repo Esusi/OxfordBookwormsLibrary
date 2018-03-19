@@ -165,3 +165,31 @@ Yes! People have at various times in history been sensitized to the ways the bod
 ​	A film by Chris OF Flaherty Todd Amacker Shireen Rahimi, Olivia Schmidt and Tim Treuer . Music by New West Studios and art by Eric Linton . Special thanks to the University of Montana, WWf, Canon USA, and Day's Edge Productions. Generously funded by WWF and Tangled Bank Studios.
 
 ​	The Short Film Showcase spotlights exceptional short videos created by filmmakers from around the world and selected by National Geographic editors. We look for work that affirms National Geographic's belief in the power of science, exploration, and storytelling to change the world. To submit a film for consideration, please email .The filmmakers created the content presented, and the opinions expressed are their own, not those of National Geographic Partners.
+
+# For St. Patick's  Day, 17 Pictures That Transport You to Ireland
+
+​	Here are some of our favorite pictures of the Emeralad Isle.
+
+​	To celebrate St. Patrick's Day, we've compiled our favorite pictures of the Emerald Isle. See breathtaking views of sea coasts, a trio of traditional Irish wedding crashers, and a woman bending backward to kiss the Blarney Stone.
+
+​	Ireland is a country primed for epic road trips, the most famous is certainly along the Wild Atlantic Way. Whether you take this well-trodden path or create one of  your own, here are some things you might want to know about the most renowned sites along the way.
+
+## St.Patricks Cathedral
+
+​	The largest cathedral in the country is still an active house of worship. If you are in Dublin, be sure to stop in Monday through Saturday for a free guided tour or check the calendar for a chance to see the 500-year-old choir perform.
+
+## Blarney Castle and Gardens
+
+​	Kissing the Blarney Stone is on many visitors' to-do lists when planning a trip to Ireland. While you're at this historic castle, be on the look out for some surprising species in the surrounding woodlands including otters,red squirrels, and buzzards. Or visit some of the world's most dangerous plants in the Poison Garden, if you dare.
+
+# Find Bliss in This Stunning Floral Kingdom
+
+> Whether exporing these unique flowers in the wild, or touring the Kirstenbosch botanical gardens, teh rare flora in this kingdom is sure to impress.
+
+​	Many travelers visit South Africa to see the Big Five animals, soak in the views from Table Mountain, or relax on a beach where two oceans meet-essential experiences in this multicultureal nation. There is so much to offer in South Africa, that one of its most unique qualities can sometimes go overlooked. The world is divided into six Floral Kingdoms, also called Floristic Regions. South Africa is home to the smallest-by far- and most unique Floral Kingdom, as designated by plant geographers. Thirty percent of the plant genera in South Africa's Cape Floristice Regions are found nowhere else in the world.
+
+​	Here are five ways to experience the unique flora of the fynbos,or fine bush, in this UNESCO World Heritage site all within a day's drive from Cape Town.
+
+​	On the edge of bustling Cape Town, find yourself in a colorful, kaleidoscopic escape. The 1300-acre garden is expansive and beautifully organized. Get lost in the hills of color, follow a detailed map, or join a free walking tour(after paying the five dollar entry fee). The garden is also home to frequent music and movie events on summer evenings. And not to be missed o a clear day is the Boomslang Tree Canopy Walkway, a steel and timber bredge that winds(like a boomslang ,or tree snake)through the canopy providing aerial views of the gardens and Table Mountain.
+
+​	From most areas in Cape Town it is hard to miss the New7 Wonder of Nature that is Table Mountain. A cable car can take you up and down the mountain should you choose to skip a hike, just be sure to check the site frequently for weather and wait time updates. Table Mountain National Park boasts more plant species than all of New Zealand, so hiking , expecially with a guide or  naturalist, will give you the opportunity to truly experience the unparalleled diversity.  Consult with a guide company like Hike Table Mountain to find which of the hundreds of possible routes is best for you.
