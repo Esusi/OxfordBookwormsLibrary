@@ -193,3 +193,34 @@ Yes! People have at various times in history been sensitized to the ways the bod
 ​	On the edge of bustling Cape Town, find yourself in a colorful, kaleidoscopic escape. The 1300-acre garden is expansive and beautifully organized. Get lost in the hills of color, follow a detailed map, or join a free walking tour(after paying the five dollar entry fee). The garden is also home to frequent music and movie events on summer evenings. And not to be missed o a clear day is the Boomslang Tree Canopy Walkway, a steel and timber bredge that winds(like a boomslang ,or tree snake)through the canopy providing aerial views of the gardens and Table Mountain.
 
 ​	From most areas in Cape Town it is hard to miss the New7 Wonder of Nature that is Table Mountain. A cable car can take you up and down the mountain should you choose to skip a hike, just be sure to check the site frequently for weather and wait time updates. Table Mountain National Park boasts more plant species than all of New Zealand, so hiking , expecially with a guide or  naturalist, will give you the opportunity to truly experience the unparalleled diversity.  Consult with a guide company like Hike Table Mountain to find which of the hundreds of possible routes is best for you.
+
+# 6 Simple Animations That Explain Complicated Things
+
+​	How do scientists edit DNA ?Why does coral turn white when it dies? These six animations answer those questions and more.
+
+## WHAT HAPPENS TO YOUR BRAIN ON OPIOIDS?
+
+​	Driven by opioid addiction, drug overdose is now the leading cause of accidental death in the United States. Opioid are part of a drug class includes the illegal drug heroin and powerful pain relievers such as oxycodome, hydrocodone, codeine, morphine,fentanylm and many others. In 2015,more than 3300 people died from overdoses involving opioid. Every day in the United States more than 1000 people are treated in emergency departments for not using prescription opioid as directed. Lily Fang's animation,Susan's Brain,is part of a free online course produced by HarvardX and featured as part of the Naitonal Geographic Short Film Showcase.
+
+## HOW CARBON DIOXIDE IS KILLING OUR CORAL REEFS-AND HOW WE CAN GROW THEM BACK
+
+​	Warming and acidification from carbon dioxide in our atmosphere are having long-term effects on life in our oceans,In this video by Earth Vison Trust from the Short Film Showcase, marine ecologist and geologist Joanie Kleypas, of the Naitonal Center for Atmospheric Research, explains how carbon dioxide changes the PH level of the ocean and how that leads to coral die-off .She also helps us understand how humans can help restore damaged coral reefs.
+
+## HOW TO MAKE A BRONZE STATUE LIKE YOU WERE BORN IN ANCIENT ROME
+
+​	This captivating 2-D animation,combined with stop-motion, is not your everyday how-to-video.The film artistically explains the lost wax technique,a simple bronze casting process applied here to a plaster replica of the original bronze statue of the Roman emperor Hadrian found in Tel-Shalem,Israel,dating to A.D.117-138.For this Short Film Showcase film, Renana Aldor and Kobi Vogman workd hand-in-hand with the curator and restoration department of Jerusalem's Israel Museum for the Hadrian exhibition.
+
+## WHAT WILL HAPPEN TO ANIMALS AT THE US MEXICO BORDER WALL?
+
+​	Although many people think of the region between Mexico and  the southwestern US as dry, flat desert, it's actually a rich mix of temperate and subtropical climates, home to mountains ,lush flora, and all kinds of wildlife.Many migratory species depend on these critical areas for their survival. Extending the wall will compromise the animals' access to water,ability to procreate, and mobility in dangerous situations. Watch this animated video to find out how the new wall could disrupt an entire ecosystem.
+
+## HOW DO SCIENTISTS HACK DNA?
+
+​	A technology called CRISPR makes it possible to target and replace DNA segments in plants,animals, and other living things. Potential applications range from food security to disease prevention. CRISPR's ethical implications remain a matter of debate.
+
+## WHAT DOES IT REALLY MEAN TO BE HAPPY?
+
+​	Happiness is something that everyone feels in a different way. Cats bring some people overwhelming joy, and to others they bring nothing but stuffy noses.Pharrel Williams compared happiness to a room without a roof, and the Beatles sang that happiness is a warm gun. If you had to measure happiness, what would you do? Every year the scientists at Gallup World Poll measure happiness around the globe, and they've had some surprising results. Watch this bright, cheery video to find out how they do it. And to learn more about happiness ,read the November 2017 magazin article.
+
+​	The Short Film Showcase spotlights exceptional short videos created by filmmakers from around the world and selected by National Geographic editors.We look for work that affirms National Geographic's belief in the power of science, exploration, and storytelling to change the world.To submit a film for consideration,please email sfs@natgeo.com . The filmmakers created the content presented, and the opinions expressed are their own, not those of National Geographic Partners.
+
