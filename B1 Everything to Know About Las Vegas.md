@@ -224,3 +224,29 @@ Yes! People have at various times in history been sensitized to the ways the bod
 
 ​	The Short Film Showcase spotlights exceptional short videos created by filmmakers from around the world and selected by National Geographic editors.We look for work that affirms National Geographic's belief in the power of science, exploration, and storytelling to change the world.To submit a film for consideration,please email sfs@natgeo.com . The filmmakers created the content presented, and the opinions expressed are their own, not those of National Geographic Partners.
 
+# Breathtaking Time-Lapses That Are Perfect for Spring
+
+​	Watch flowers waltz with insects and drip with ink in these stunning time-lapse videos.
+
+## A SECRET GARDEN COMES ALIVE IN A SYMPHONY OF MUSIC
+
+​	Journey through a blooming garden of dancing flowers in this incredible four-minute video. Visual effects artist and filmmakeer Jamie Scott spent three years shooting the stunning springtime imagery in this continuous motion time-lapse.Paired with a beautiful musical score, this is one you'll want to watch again and again.
+
+## FIRE, ICE, AND INK TURN FLOWERS INTO STUNNING WORKS OF ART
+
+​	Watching blooming flowers in teract with fire,ice and ink in this gorgeous time-lapse by Thomas Blanchard.The vibrant beauty of the blooms is highlighted in dramatic fashion as they transition through the four seasons represented by each element.
+
+## INSECTS WALLTZ WITH FLOWERS IN A DELICATE DANCE
+
+​	Unwelt is defined as the world as it is experienced by a particular organism.It's a word often used in relation to ethology, the study of animal and human behavior.This short experimental film by Yoshiyuki Katayama is a composite of time-lapse videos of flourishing flowers with real-time insect imagery.
+
+## CACTUS FLOWERS BLOOM IN A MESMERIZING EXPLOSION OF COLOR
+
+​	Did you know that cacti have flowers? Filmmaker Greg Krehel captures 15 varieties of stunning Echinopsis cactus blossoms in this incredible time-lapse.The process happens overnight, and the flowers last for only a day, with a peak period occurring for a mere hour or two.
+
+## FLOWERS OPEN THEIR PETALS IN DOZONS OF UNIQUELY BEAUTIFUL WAYS
+
+​	Witness how dozens of different types of flowers undurl in this stunning time-lapse video from filmmaker David de los Santos Gil.He used 5000 out of 5000 shots of his floral subjects for the final video,which was filmed over a period of nine months.
+
+​	The Short Film Showcase spotlights exceptional short videos vreated by filmmakers from around the world and selected by Naitonal Geographic editors.We look for work that affirms National Geographic's belief in the power of science, exploration,and storytelling to change the world.To submit a film for consideration, please email sfs@natgeo.com .The filmmakers created the content presented, and the opinions expressed are their own,not those of National Geographic Partners.
+
