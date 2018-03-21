@@ -250,3 +250,18 @@ Yes! People have at various times in history been sensitized to the ways the bod
 
 ​	The Short Film Showcase spotlights exceptional short videos vreated by filmmakers from around the world and selected by Naitonal Geographic editors.We look for work that affirms National Geographic's belief in the power of science, exploration,and storytelling to change the world.To submit a film for consideration, please email sfs@natgeo.com .The filmmakers created the content presented, and the opinions expressed are their own,not those of National Geographic Partners.
 
+# The Giant Squid Nebula and More Animals of the Cosmos
+
+> As galixies collide and new stars are born, spectacular shapes form in the universe-and many of them resumble Earthly creatures.
+
+​	If you can't get enough of the animals here on Earth, just look forward the heavens.There you will find eagles,elephants,whals,and more-as long as you have a powerful telescope and an even more powerful imagination.
+
+​	Astronomers have long named galaxies, nebulae, and other astronomical phenomena for the animals they resemble when observed from Earth.Now these animal look-alikes, comprised of starts and stardust,number in the dozons.Nebulae alone,for example,represent at least 20 example at 20 animals,from giant squid to running chickens.
+
+​	These are the objects that really capture people's imaginations,says Karen Masters,associate professor of astronomy at Haverford Collage.It's human nature to see familiar things in the unfamiliar,(See an epic picture that shows thousands of galaxies in one frame)
+
+​	And to early observers,these phenomena were indeed unfamiliar.Nebulae are cosmic clouds of gas and dust, linked to the birth or death of starts,whereas galaxies are ensembles of millions or billions of starts bound together by gravity.
+
+​	Animal names, like Mice Galaxies,have been used for years-and in some cases, centuries.But they're not actually offcial, says Thierry Montmerle, former General Secretry of the International Astronomical Union,which oversees the naming of astronomical objects.
+
+​	It's very informal, he says.The name is adopted by popular demand,and the LAU is perfectly happy with that.
