@@ -265,3 +265,29 @@ Yes! People have at various times in history been sensitized to the ways the bod
 ​	Animal names, like Mice Galaxies,have been used for years-and in some cases, centuries.But they're not actually offcial, says Thierry Montmerle, former General Secretry of the International Astronomical Union,which oversees the naming of astronomical objects.
 
 ​	It's very informal, he says.The name is adopted by popular demand,and the LAU is perfectly happy with that.
+
+# More Birds Expected for Majority of National Parks-Here's Why
+
+> Climate change may have big impacts on avian species, and all the result may not be positive.
+
+​	Dozons of different birds-Northern pintails,wild turkeys, Franklin's gull, Sterller's jays,and cedar waxwings,just to name a few- make homes for themselves in Yellowstone National Park during at least of the year.Millions of birdwatchers make their way here and to national parks all over the country each year to see them.
+
+​	Collectively,birdwatchers spend 107 billion dollars annually in the US. But if climate change continues uninterrupted ,duck enthusiasts may have to  travel elsewhere if they wish to catch a glimpse of a Northern pintail.By 2050,this species could no longer find suitable habitat in Yellowstone.On the other hand, avian enthusiasts could begin to see the Western scrub jay showing up there, at least in the winter.
+
+​	Because they can move around so easily  on their wings, birds are often considered indicator species.When the climate begins to change, birds are often the first to display a response that we notice. Recent assessments of the impacts of climate change on birds in  the US and Canada suggest that one in five species are highly vulnerable to climate change; that is , they are so particular about the temperatures they can tolerate that they may disappear entirely from some parts of their range. But if they're lucky, they can expand elsewhere into newly suitable habitat.
+
+​	A team of research from the National Audubon Society and the US National Park Service reported Wednesday in the journal PLOS ONE that 60 percent of US national parks could become more hospitable for birds overall by the middle of the century-if climate change continues apace.In other words, the number of potential new colonizations would the number of potential local extirpations for roughly three out of every five national parks.That's based on an assessment of 513 species across 274 parks.
+
+​	You often hear of climate change being all doom and gloom,but one of the finding is that in winter especially, parks are going to become more important sanctuaries for birds, says Audubon Society avian biologist Joanna Wu, who led the study.
+
+Some birds may even stop migrating if winters and mild enough that they can tolerate local conditions, says Wu.
+
+## THE POWER OF PARKS
+
+​	The new data underscore just how critical it is to protect the national park system-often referred to as America 's Best Idea—to ensure a bright future for as many North American birds as possible, the reearchers say.
+
+​	But they also suggest that the avian communities of the future could look dramaticallly different from the ones we know today. And it is at best unclear what ecological consequences would emerge if Wu's predictions come true.
+
+​	We're saying that climate will become suitable ,but the species dispersal capacity, ability to find resources and food and places to raise their chicks,those are all big question marks, she say.
+
+​	Indeed,says McGill University avian biologist Barbara Frei, who was not involved in the study, if the birds can adapt to climate change by moving north, but the trees they depend on can't, where will they nest?
