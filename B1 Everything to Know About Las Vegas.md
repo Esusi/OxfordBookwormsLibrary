@@ -291,3 +291,28 @@ Some birds may even stop migrating if winters and mild enough that they can tole
 ​	We're saying that climate will become suitable ,but the species dispersal capacity, ability to find resources and food and places to raise their chicks,those are all big question marks, she say.
 
 ​	Indeed,says McGill University avian biologist Barbara Frei, who was not involved in the study, if the birds can adapt to climate change by moving north, but the trees they depend on can't, where will they nest?
+
+# You Have to Grab This Moment
+
+> A business icon stresses the importance of finding common ground during times of increased divesiveness in America.
+
+​	Ann Fudge was a high school junior in segregated WashingtonDC when Martin Luther King JR was assassinated on April 4,1968.In the days that followed, while standing outside a Rhode Island Avenue convenience store waiting for her grandfather, an armed guardsman pointed a gun toward Fudge's face and asked her if she knew a curfew had been declared. The shop owner and her grandfather rushed outside to vouch for her, but the experience left an indelible mark. One of only four black girls in a class of one  hundred at Immaculata Preparatory School, Fudge made a commitment to excel in all that she set out to accomplish.She went on to attend Simmons College and Harvard Business School, becoming one of the top women business leaders in America.
+
+​	Fudge spent several years as chairman and chief executive officer of Young & Rubicam, a globle advertising agency, and has led several business, including a five-billion-dollar division of Kraft Foods.Now, 50 years later, Fudge says that painful that her five grandchildren will not be confronted with the same racial intolerance.
+
+​	Fudge sat down for a conversation with National Geographic Editor in Chief Susan Goldberg to discuss the legacy of Martin Luther King JR,the current racial climate in America, and the importance of communicating across differences.
+
+​	Susan Goldberg:
+
+​		Talk about your experience following the assassination of DR. King.
+
+​	Ann Fudge:
+
+​		You experience the heatbreak of this person that you felt was making a difference. My parents had gone to the March on Washington.I didn't go , but I still keep picture that were taken.They're faded now.Right away the climate was ugly.I've seen ugly stuff before . You talk to other black people they're seen ugly things before.
+
+​	Observing the change in the city afterward was stark. It gave me a sense of incredible empowerment.I grew up in a time when there weren't even black bus drivers.We had trolleys then,or streetcars as we called them.A year or so later you saw black people in jobs you never thought you'd see, even in stores like Garfinckel's where they didn't have many salespeople. There were little things like that.I remember my parents saying,You have to grab this moment.It's a moment in time.And we don't know when the door will close again.I remember that.It's one of those things I think,I know, was a driver for me personally to make a difference and to do something different.When you think about momnets in time and history, you don't understand the history until decades later.At this juncture in my life, I think about it a lot. I think about legacy.I think about what I want for my five grandchildren. I don't ever want them to ever have to experience anything like that. And so when I see what's happening today, it pains me beyond measure.I say ,Oh my god, are we doing to go through this again?
+
+​	Susan Goldberg:
+
+​		Does it feel like that is what's happening?What would make it better?
+
