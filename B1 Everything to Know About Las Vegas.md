@@ -316,3 +316,15 @@ Some birds may even stop migrating if winters and mild enough that they can tole
 
 ​		Does it feel like that is what's happening?What would make it better?
 
+​	Ann Fudge: People of goodwill have to move forward in a positive way.We cannot get sucked into criticizing every day what somebody's doing that we don't like.Things are happening, but what are we doing that's positive? I work with girls at Mother Caroline Academy.I don't want them to have bad experiences. Many of them are from immigrant familes.You have to keep them positive.I'm just going go focus on making a difference and impacting what I can, getting my friends engaged.Thank God I live in a space and grew up at a time where my network of friends is incredibly broad and diverse,both in the US and internationally. I'm grateful that I had that and not the fear, which many of my friends in Washington had.When you don't have the experience and exposure to people who are good, no matter what color you are,it clouds how you think about them and fuels your skepticism.
+
+​	Susan Goldberg:
+
+​		Why do you think you emerged from a pretty scary moment when somebody takes out a  gun and is pointing it at you with more strength,when other people might just retreat? What pushed you?
+
+​	Ann Fudge:Growing up watching things on television during that period in the 60s and knowing that only by coming together would things change.
+
+​	Washington was very segregated when I grew up. So you don't know what you don't know.And then you make friends.And you realize we truly are human being if we can step beyond and talk honestly about things.Until we get to a point where it's not just black folks talking about it among themselves or white folks talking to each other.The challenge is that it's a global issue in every country.We find ways to separate people or to make one group better than the other.
+
+​	I saw things on television in the 50s and 60s that are seared in my head, whether it was the water hoses or the dogs . I feel like I'm back there again.I feel like I'm back to where we were before.And that's not a good feeling.For some, it's probably been nascent.Here's the that concerns me most.It's almost like, to make America great again, we have to do this with these people.It's creating a whole other dynamic.I'm so open . But I worry.
+
