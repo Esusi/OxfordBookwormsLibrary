@@ -328,3 +328,42 @@ Some birds may even stop migrating if winters and mild enough that they can tole
 
 ​	I saw things on television in the 50s and 60s that are seared in my head, whether it was the water hoses or the dogs . I feel like I'm back there again.I feel like I'm back to where we were before.And that's not a good feeling.For some, it's probably been nascent.Here's the that concerns me most.It's almost like, to make America great again, we have to do this with these people.It's creating a whole other dynamic.I'm so open . But I worry.
 
+# Arctic Sea Ice Is Second-Lowest on Record
+
+​	But the amount of ice found throughout most of the Arctic was even lower than in recent years, except for the region around Janpan.
+
+​	Severely warm temperatures drove Arctic sea ice to a high of 5.6 million square miles this winter- one of its lowest on record, according to an annual evaluation released Friday by NASA.
+
+​	Yet even though there was slightly more ice overall across the northern latitudes this winter than during last year's record-breaking low, scientists saw several troubling trends during the winter of 2017-2018.
+
+​	During February, temperatures skyrocketed to a wild winter high more than 45 degress above normal in some areas, sending the North Pole-in the dead of winter, when the region is shrouded in darkness - above freezing for several days. Massive sections of Greenland, normally blanketed by thick,old ice,experienced open water for the first time on record. Much of the Bering Sea off Alaska, and for a while, the whole of the Bering Strait, was also ice-free, which is pretty remarkable, says NASA sea ice expert Alek Petty.
+
+​	And despite not breaking last year's record, this winter continued a recent trend of being worse than scientists expected.
+
+​	These last few winters have all been above our projections for air temperature predictions and sea-ice declines, Petty says.
+
+## THE ARCTIC'S VALUERABILITY
+
+​	While climate change is warming the globe,it's hitting the poles even harder.
+
+​	And as rising temperatures drive the loss of sea ice, the loss of ice itself ends up making the situation even worse.
+
+​	It's a two-way street,Claire Parkinson, senior climate scientist at NASA's Goddard Space Flight Center said in the agency's announcenment.The warming means less ice is going go from and more ice is going to melt. Also, because there's less ice, less of the sun's solar radiation is reflected off, and this contributes to the warming.
+
+​	In fact, through most of the winter, the Arctic was on track to have its worst period ever. The only reason this winter ultimately did't break yet another record for low sea ice was that as cooler air in recent weeks allowed ice to reform the increase near Japan in the sea of Okhotsk was significant enough to make up for losses elsewhere.
+
+## STORMY WEATHER
+
+​	What happened this winter was that storms from both the Atlantic and the Pacific sent warm water and winds into the north.
+
+​	Part of the problem, of course,is that those ocean bodies are warmer than they once were. In addition, over time, the Arctic has lost evermore of the thicker,older ice that stabilizes the entire region. That means that the wamth from storm event that pummel the Arctic travels father and does more damage, causing the ice to melt even more.
+
+​	For example, the big hole in the ice that opened up over Greenland closed rather quickly after the heat subsided. But NASA officials say the new ice is thinner and less stable, and more susceptible to whatever warm spell comes next.
+
+## SEE THE WILDLIFE OF ANWR
+
+​	We recently looked back and were able to show that extreme warm periods have happened before in the Arctic, even 100 years ago, Petty says. But what we're seeing is that there's an increase in the frequency of these incidents, they are lasting longer, and the impact on sea ice is even greater. The storms are simply eating away at the sea ice more than they used to .
+
+​	The key,of course, is that all these ice declins are having immeasurable impact on the globe- increasing heat and moisture in the atmosphere, changing mixing and circulation of the Arctic ocean, affecting what and where things live, even altering the globe climate system. And these shifts will only get worse until and unless humans dramatically scale back carbon dioxide emissions from the burning of coal , oil,and gas.
+
+​	The changes are just going to get more severe, Petty says.
