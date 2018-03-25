@@ -367,3 +367,36 @@ Some birds may even stop migrating if winters and mild enough that they can tole
 ​	The key,of course, is that all these ice declins are having immeasurable impact on the globe- increasing heat and moisture in the atmosphere, changing mixing and circulation of the Arctic ocean, affecting what and where things live, even altering the globe climate system. And these shifts will only get worse until and unless humans dramatically scale back carbon dioxide emissions from the burning of coal , oil,and gas.
 
 ​	The changes are just going to get more severe, Petty says.
+
+# Photos from March for Lives Events Around the Globe
+
+> Take a look at powerful moments from the movement protesting gun violence,led by young adults,that has spread throught the world.
+
+​	Now we fight for our lives.
+
+​	That is the call to action urged by the March For Our Lives website following a rally that drew hundreds of thousands to Pennsylvania Avenue in Washington, DC this Saturday to protest gun violence.Sister marches took place not only across the country, but around the world—adding up to 846 events globally, with one even held in Antarctica.
+
+​	No matter the location, the unifying message of these protests was clear: Enough is enough.Many of those who carried signs or spoke at the rally demanded tougher gun-control laws, including banning the sale of assault weapons and closing loopholes on background checks.
+
+## A NEW Class of Leaders
+
+​	It has taken only 38 days for the surviving students of the shooting at Marjory Stonemen Douglas High School in Parkland, Florida, to ignite a nationwide movement toward gun reform.
+
+​	Many of the school's students spoke at the main March For Our Lives event in Washington DC Senior Emma Gonzalez asked the crowed to fight for your lives before it's someone else's job.
+
+​	Perhaps the most moving part of Gonzalez's speech ,though, was silence . She allotted herself six minutes and 20 seconds for her speech — the amount of time, she said, that it had  taken Nilolas Cruz to kill 17 in Parkland and injure many more.
+
+​	A surprise appearance was also made by Yolanda Renee King, the 9–year-old granddaughter of the revolutionary Martin Luther King JR and Coretta Scott King—and she has a dream of her own.I have a dream that enough is enough, she said. That this should be a gun-free world.Period.
+
+​	The young, determined voives didn't stop at the stage.Children and teens of all ages showed up with signs in tow.One fourth-grade girl who came with fellow students from Francis Scott Key Elementary School in Arlignton ,Virginia, held a sign that read: We may be small but we have a voice.
+
+​	Volunter could also be seen throughout the througs of crowds calling for people to register to vote.Stickers adorning protestors' jackets and signs counted down the day until US midterm elections , which will take place in eight months on November 6.The elections are seen as a chance to bring in more members of Congress as well as state and local officials who support gun-control measures.
+
+## What Happens Now?
+
+​	In every midterm election since the  Civil War, the president's party has lost an average of 32 seats in the House and two in the Senate.This year, Democrats need only 24 seats to take majority in the House, and two to take the Senate.
+
+​	Conversation has also recently been sparked by the new spending bill, which was signed by President Trump on Friday.Agency instructions that accompany the bill note that the Centers for Disease Control and Prevention will now have the authority to conduct research on the causes of gun violence.
+
+​	The problem? In 1996 Congress passed the Dickey Amendment, saying that none of the funds give to the CDC for injury prevention could be used to advocate for or promote gun control.The Arkansas Republican for which the federal amendment is named for, Jay Dickey,told  NPR that he actually regretted the decision, saying It wasn't necessary that all research stop.
+
