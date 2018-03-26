@@ -400,3 +400,46 @@ Some birds may even stop migrating if winters and mild enough that they can tole
 
 ​	The problem? In 1996 Congress passed the Dickey Amendment, saying that none of the funds give to the CDC for injury prevention could be used to advocate for or promote gun control.The Arkansas Republican for which the federal amendment is named for, Jay Dickey,told  NPR that he actually regretted the decision, saying It wasn't necessary that all research stop.
 
+# Pictures: World's Iconic Buildings Go Dark for Earth Hour
+
+> Iconic buildings go dark to raise awareness around energy consumption and climate change.
+
+​	The bright green lights that typically illuminate the Petronas Towers in Kuala Lumpur—the tallest twin buildings in the world—were turned off for a recent Earth Hour—an annual event aimed at raising awareness about energy consumption.
+
+​	Dozens of other iconic landmarks around the world, including the Parthenon in Greece, the Golden Gate Bridge in California, and Australia's Sydney Harbor Bridge,have participated in the annual event, which is sponsored by the World Wildlife Fund.
+
+​	The first Earth Hour took has grown and spread around the world. Thousands of cities now switch off many lights for the hour in a symbol of environmental awareness.More than 170 countriyes take part, along with dozens of UNECO World Heritage Sites.
+
+​	Connecting the event to a wider message, then-UN Secretary General Ban KiMoon said in 2015:Earth Hour is a way for the citizens of the world to send a clear message that they want action on climate change.
+
+​	Earth Hour takes place from 8.30 to 9.30 pm, in each time zone around the planet.
+
+​	Here are some pictures of famous monuments observing the darkness of Earth Hour in recent years.
+
+## Acropolis
+
+​	Dating to 447BC the Parthenon in Athens is one of the most famous surviving buildings of ancient Greece.The city of Athens has turned off its buildings' lights for Earth Hour and asked locals to follow suit.
+
+## Sydney
+
+​	Sydney Harbor Bridge is the largest steel arch bridge in the world,connecting its city's north and south harbors.Thousands of houses and businessess in Sydney go dark on Earth Hour.
+
+## Eiffel Tower
+
+​	Built as an archway for an international world fair in 1889, the Eiffel Tower got some help from Spiderman in turning its lights off on Earth Hour 2014
+
+## The Big Apple
+
+​	Times Square is the busiest commecial intersection in New York City and the world's most visited tourist attraction.For the first time ever,in 2014 the city called in a specialist to turn off its New Year's Eve ball, which typically remains on throughout the year.
+
+## Minsk, Belarus
+
+​	In the Belarusian capital of Minsk, the monument to humanist Francysk Skaryna is usually lit by the bright purple lights from the National Library.Big  department stores and universities also turned off their lights in Minsk for the event.
+
+## Brandenburg Gate
+
+​	The Brandenburg Gate was built in 1791 as an entryway to Berlin.It survived World War II but with extensive damage. The Earth Hour motto in Germany in 2014:You don't need to be a superhero to take action on climate change.
+
+## The Alhambra
+
+​	The Alhambra, a fortress-turned-palace that dates to 1258,watches over the city of Granada in southern Spain.
