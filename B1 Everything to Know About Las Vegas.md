@@ -443,3 +443,21 @@ Some birds may even stop migrating if winters and mild enough that they can tole
 ## The Alhambra
 
 ​	The Alhambra, a fortress-turned-palace that dates to 1258,watches over the city of Granada in southern Spain.
+
+# Our Favorite Love Letters to Earth
+
+​	There's a planet with poles that flip, a supersized moon, and landscapes that harbor acidic pools, boiling rivers and living clouds.
+
+​	We call it Earth.
+
+​	On National Geographic's new global series event One Strange Rock, filmamker Darren Aronofsky and host Will Smith take views on a Journey to explore our planet in all its fregility and ferocity.In advance of the premiere episode,we asked the world to send us love letters to the beautifully strange planet we all share.
+
+​	We wanted to know how you feel about Earth.What do you love? What inspires you? Are there places you've been to ,things you have seen,and people you've know that have shaped how you feel about this planet?
+
+​	The responses on Twitter,Facebook,and Instagram speak to our collective imperative to explore the planet, the good and the bad, because the more you know, the more likely you are to care—and to do something to help pretect the only home we've ever known.Here are some of our favorite responses so far.
+
+​	Geographic,we have the privilege of covering the stories of our planet.We capture the beauty of landscapes and the animals who live in them. We explore the lives of people around the world.We take our readers and viewers to remote corners they otherwise would never see.Our journey also show us scars we have left on the planet—the clear-cut forests,pollution,unsustainable cityes.Our job is to explore all of it—the good and the bad—because the more you know, the more you care, the more likely you are to do something to help.This is our Love Letter to Earth.
+
+​	Earth is where we call home.But how often do we imagine the BILLONS of things that had togo RIGHT in order for this place to not go WROGN.every ecosystem that had to interact perfectly to bring us to a place where we can live, breath,and THRIVE on a rock spinning at 1000mph.Earth grounds us Earth still has so much to offer  Thanx for inviting me to be a part of his amazing project
+
+​	So happy! I was given the chance to go back to my classical roots and write this piece of music for 
