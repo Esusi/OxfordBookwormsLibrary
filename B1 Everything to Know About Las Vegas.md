@@ -461,3 +461,50 @@ Some birds may even stop migrating if winters and mild enough that they can tole
 ​	Earth is where we call home.But how often do we imagine the BILLONS of things that had togo RIGHT in order for this place to not go WROGN.every ecosystem that had to interact perfectly to bring us to a place where we can live, breath,and THRIVE on a rock spinning at 1000mph.Earth grounds us Earth still has so much to offer  Thanx for inviting me to be a part of his amazing project
 
 ​	So happy! I was given the chance to go back to my classical roots and write this piece of music for 
+
+# New Human Organ Was Hiding in Plain Sight
+
+> The interstitium,scientists found,is under our skin and between our organs.Understanding it may eventually help treat disease.
+
+​	Lurking just under your skin might be a new organ only now identified for the firtst time, say a team of scientists.
+
+​	In a new study pulished in  the journal Scientific Reports,researchs from New York University's School of Medicine say they have found a new organ they're calling the interstitium.
+
+​	It's nearly everywhere—just below the skin's surface, surrounding arteries and veins, casing the fibrous tissue between muscle,and lining our digestive tracts,lungs and urinary systems.
+
+​	It looks like a mesh.The interstitium is a layer of fluid-filled compartments strung together in a web of collagen and a flexible protein elastin .Previously,scientists thought the layer was simply dense connective tissue.
+
+​	The organ has seemingly been hidden in plain sight, and scientists say they missed it because of the way tissus is studied.Before being placed under a microscope,samples are thinly sliced and treated with chemicals that allow researchers to identify key components more easily. While the process is helpful for more easily spotting details,it drains fluid from the sample.
+
+​	Devoid of their fluid , the compartments collapse,like a building with the floors suddenly knocked out, leaving the whole structure to flatten like a pancake.
+
+​	To find these pockets of intrstitial fluid,medical reseachers  looked at living tissue instead of sampling dead tissue samples.They did this by using a probing technique called confocal laser endomicroscopy. The method entails using a tiny camera probe that takes a microscopic look around a human body.Tissue is lit by the endoscope's lasers and the fluorescent patterns it then refelcts are analyzed by sensors.
+
+## ACCIDENTAL DISCOVERY
+
+​	Scientists first noticed the compartments when looking at a bile duct. They saw what they thought might be tears in dense tissue.The images were taken to Neil Theise, a professor at NYU's School of Medicin and author on the paper.
+
+​	You're talking about the remaining extracellular fluid that's unaccounted for, Theise says.About 70 percent of the human body is made of  water, and about  two thirds of that is  found in cells.The remaining third, says Theise, is only partically known.
+
+​	In addition to accounting for bodily fluid, the compartments may help explain essential functions.
+
+​	It's like a shock absober, says Theise.Not a hard, stiff material.
+
+​	Among Theise's theories for the purpose of the interstitium is that it's a source of lymph, a fluid that moves through the body's lymphatic system and supports immunity.He says that knowing how diseases spread through this part of the body could help researchers better understand how cancer spreads.
+
+​	Can we detect earlier by sampling fluid from the space? Can we figure out mechanisms to stop spread ? He asks.
+
+## PROMISE AND SKEPTICISM
+
+​	Jennifer Munson is a biomedical engineer at Virginia Tech who has looked at fluid in the body.She was not involved with the study but says its finding are promising.
+
+​	I think what the paper shows is the benefit of having new ways to image and look at tissues.dehydrate the tissues, and you lose so much structural information, Munson notes.
+
+​	She say she's fairly convinced these structures exist but wants to see more research before speculating on what they do, and whether its accurate to call them a new organ.
+
+​	I'm really excited about the find but as with all scientists,I approach everything with a little skepticism, she adds.
+
+​	Theise say he's aware of some of the skepticism surrounding his findings, but it's territory he's not shy about wading into.In 2005, he wrote an essay in Nature challening the importance of call theory a concept that holds cells as the basic structure of all organisms, and in 2001, he published a  paper finding that adult stem cells could be made to act similiarly to embryonic cells.
+
+​	There's always going to be stuff we haven't seen before that we don't know, he adds. I'm awestruck that nature is more complicated than we allow ourselves to think .
+
