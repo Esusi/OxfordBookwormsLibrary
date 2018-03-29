@@ -508,3 +508,28 @@ Some birds may even stop migrating if winters and mild enough that they can tole
 
 ​	There's always going to be stuff we haven't seen before that we don't know, he adds. I'm awestruck that nature is more complicated than we allow ourselves to think .
 
+# Bears Are Caring for Their Cubs Longer in Response to Hunting
+
+> Result from a new study could have implications for brown bear evolution.
+
+​	Over the years, several researchers noticed a change in  the way that Scan din avian brown bears care for their young. Sweden has one of  the fastest bear reproduction rates in  the world, and it seems that females were spending more time with their cubs.
+
+​	We needed to provide evidence, and  then that triggered new questions, says Joanie Van de Walle, a PhD student in the Department of Biology at the Universite de Sherbrooke in Quebec, Canada.
+
+​	Van de Walle is part of an international team of researchers who combed through decades of data on brown bear populations in Sweden to investigate this trend. By following the lives of hundreds of bears, the researchers determined that more mothers are raising their cubs for one year longer than they have in the past.
+
+​	This behavioral shift can be directly attributed to humans, according to a study published March 27 in Nature Communications.With a population of around 3000 bears that could be increasing by as much as five percent each year, sustainable hunting tactics can keep bear numbers at bay.This behavioral shift of mother bears caring for their young for a longer time could be directly related to hunting regulations.
+
+​	In the same way that humans shape wildlife by killing animals, we can also shape wildlife by not killing them.Long-term, this could have implications for brown bear evolution.
+
+​	Evolutionarily, it doesn't usually make sense for wildlife to have fewer offspring and care for them over a long period of time. When facing high hunting pressure,it's logical that brown bears would have as many cubs as possible, but the team's findings contradict this.
+
+​	The researchers looked at 22 years' worth of data,following more than 500 bears, many of them from birth to death.Before 2005, they found that only about seven percent of Scandinavian brown bear mothers kept their cubs for a year and a half. Between 2005 and 2015, the study found that more than 36 percent of females are keeping their cubs for an extra year.Although the amount of time spent with their young is changing, the strategies bear mothers are using to raise their cubs are not.
+
+​	Hunting pressure in Sweden is high, and the researchers were surprised by these findings. But when related to a relatively recent law that makes it illegal to hunt mother bears in Sweden, the data make more sense. Staying in family groups would provide a win-win situation for females to lead safer lives protescted from hunters while allowing them more time to care for their young.
+
+​	A single female in Sweden is four times more likely to be shot as one with a cub, Jon Sweden, a professor in the Department of Ecology and Natural Resource Management at the University of Life Sciences,says in a press release.
+
+​	Caring for the cubs for a longer time has the added bonus of giving them a better chance of survival long-term.The researchers found that femals cubs that received extended parenting survived their second year of life.But 22 percent of cubs that were cut loose after a year and a half didn't make it to three years.In addition to being hunted by humans, all cubs that mothers let go of early were more likely to be killed by other bears  over brawls for teritory or resources.
+
+​	This new technique of reproducing slower but taking care of cubs for longer outpaces reproductive opportunities, Van de Walle says.
