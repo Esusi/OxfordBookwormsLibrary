@@ -533,3 +533,42 @@ Some birds may even stop migrating if winters and mild enough that they can tole
 ​	Caring for the cubs for a longer time has the added bonus of giving them a better chance of survival long-term.The researchers found that femals cubs that received extended parenting survived their second year of life.But 22 percent of cubs that were cut loose after a year and a half didn't make it to three years.In addition to being hunted by humans, all cubs that mothers let go of early were more likely to be killed by other bears  over brawls for teritory or resources.
 
 ​	This new technique of reproducing slower but taking care of cubs for longer outpaces reproductive opportunities, Van de Walle says.
+
+# Striking Photos of The Men Who Work in an Active Volcano
+
+> Mount Ijen's gorgeous vistas have captivated travelers for centures,but in recent years, its sulfur mine has become a controversial tourist attraction.
+
+> Thirty-six-year-old Hadis has been a full-time miner for 10 years.He recently started as a cook in a nearby tourist restaurant,but periodically returns to the mine for extra income.
+
+​	A trick veil of smoke erases the sky over Mount Ijen, the scent of burent matches saturates the air.
+
+​	The noxious material that seeps from the bowels of East Java's active volcano is incongruous with human life-it stings the eyes, burns the lungs, and corrodes the skin. But since 1968, the sulfur miners of Mount Ijen have venturend into this unpredicatable labyrinth of gas clouds and superheated fumardoles to extract devil's gold and carry it back down the mountain—a portrait of bone—crushing physical labor.
+
+​	Mount Ijen hosts one of the last remaining active sulfur mine in the world, and while its otherworldly vistas have captivated scientists and travelers for more than two centuries, in recent decades, the miners themselves have become a controversial tourist attraction.
+
+## EVVIL'S GOld
+
+​	Every day, miners make the arduous trek up Ijen's 9000-foot slopes under the cover darkness before descending another 3000 feet into the crater, where a network of man-made cermic piples funels the gases responsible for precipitating elemental sulfur.
+
+​	Enveloped in toxic fumes and heat, they chip away at the hardend blocks and carry 150 to 200-pound loads back up the crater twice a day, earning an average of five dollars per trip.
+
+​	Around 2.am when the first miners begin their ascent, hundreds of tourists are already streaming across the flanks of Ijen to witness its iconic blue flames, which can only be seen at night .Its half-mile turquoise creater lake takes on an eerie glow in the darkness.Deceptively beautiful, it has a PH lower than that of battery acid- the largest acid lake on Earth, caustic enough to dissolve metal.
+
+## TOURISM OR VOYEURISM
+
+​	Considered a form of cultural heritage tourism, mine tours can be found around the world  from Africa to Australia.Unlike Mount Ijen, few are still active, and many have been museunified.
+
+​	Some researchers propose tourists are attracted to these sites because they elicit what philosophers have termed the sublime a feeling of pleasure in seeing a dangerous but awe-inspiring object, like a violent act of nature.Victor Hugo defined it as a combination of the grotesque and beautiful as opposed to the classical ideal of perfection.
+
+​	During high season, the mountain can see more than a thousand tourists per day. They often ask the miners to pose for photographs in exchange for small tips, what critics argue is a form of poverty tourism—the commodification of human suffering.
+
+​	Tourists seem to relish narrating their tales of survival in apparently dangerous situations, an attitude not unlike that found towards other potentially hazardous receations and extreme sports, explains University of North Alababa geography professor Michael Pretes in the Annals of Tourism Research.
+
+​	On the other hand, tourism can also be a powerful tool for economic development and expose unfavorable working canditions regardless of motivations for visiting. The tourism industry in East Java at large employs an region,and the workers are well-respected members of their communities .Many pride themselves on their physical fitness and role in attracting visitors to the island.
+
+​	Tourists are seen as the new ore to be mined,and like metals , have the potential to provide economic booms as well as busts, according to Pretes, who studied the active sliver mines in Potosi, Bolivia.He argues that mining tourism can have a multiplier effect by bringing income to local hotels , restaurants, stores, transportation, and nearby historical sites.
+
+​	Despite these potential advantaages, the risks remain high. Many miners can't afford protective equipment like gloves and masks ,or choose to forgo them because it hinders their work.Short-term exposure to highly concentrated levels of sulfur dioxide can be deadly,and chronic exposure can lead to breathing diffculties, airway obstructions, and impaired lung function, according to the Centers for Disease Control.
+
+​	To prevent the objectification of people living in improverished conditions, ethical travel experts reccommend that tourists refrain from taking photographs solicit permission from the subjects being photographed.
+
