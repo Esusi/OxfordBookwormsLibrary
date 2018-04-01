@@ -572,3 +572,25 @@ Some birds may even stop migrating if winters and mild enough that they can tole
 
 ​	To prevent the objectification of people living in improverished conditions, ethical travel experts reccommend that tourists refrain from taking photographs solicit permission from the subjects being photographed.
 
+# Why Are American Samoans Not US Citizens?
+
+> If you are born in Guam or Puerto Rico,you are automatically granted citizenship.If you are born in American Samoa, that isn't the case.
+
+​	The residents of American Samoa have a long tradition of voyaging to new lands as part of their ancestors' history.But in modern times, going beyond their five islands and two coral atolls in the South Pacific Ocean has often proven legally challenging.
+
+​	Despite American Samoa's status as a US territory, the people who are born there aren't technically US citizens.They're called US nationals, a status that means they pay American taxes but cannot vote, run for office, or serve on a jury. They also have special passports that declare them nationals, but not US citizens.
+
+​	This unusual status has prompted a group of American Samoans living in Utah to file a lawsuit, arguing that they should be considered US citizens under the 14th Amendment which grants citizenship at birth to anyone born in the US . The group says they face travel restrictions when they leave American Samoa, sometimes having to pay fees or obtain permits that US citizens don't need in order to travel , the Associated Press reports.
+
+​	What makes this US territory differnet from the other four-the US Virgin Islands, the Northern Mariana Islands,Guam, and Puerto Rico-when it comes to citizenship?
+
+​	It boils down to American Samoa's unincorportated status.In the early 20th century, the US couts defined territories as incorportated and unincorporated in order to divvy up the land that the US. received from the end of the Spanis American War. The justices who made those distinctions saw the people living in the unincorporated territories as uncivilized races and said that granting citizenship to them could be dangerous, in the group of rulings that bacame known as the Insular Cases.
+
+​	Eventually, the other four territories listed above gained birthright citizenship through statutes, meaning people who are born there are automatically US. citizens. But because Samoa is the only territory still classified as unincorated, people who born there are only considered US citizens if they have a parent who is a US citizen.Otherwise, they have to go through the same lengthy, expensive naturalization process as any other person who isn't a citizen with no guarantee that it will be successful.
+
+​	The lawsuit is the second such attempt within the past decade. The first, filed in 2012 was ultimately unsuccessful, with the Supreme Court ruling in 2015 that the 14th Amendment does not apply to overseas territories. The court decided not to reconsider that ruling when it was brought up again in 2016.
+
+​	Leneuoti Tuaua, a former marshal for the High Court of American Samoa who holds two titles, was one of  seven American Samoans who filed the first lawsuit.Tuaus said American Samoans are treated differently whenever they travel abroad, even to places like independent Samoa the island country next door.
+
+​	I want my children to have same world of opportunities available to them that are avaiable to any other child in any other part of the United States, Tuaus said in an editorial for Samoa News published in July 2012.I for on believe that our traditional leaders were right when they believed that US citizenship followed the American flag to our islands.
+
