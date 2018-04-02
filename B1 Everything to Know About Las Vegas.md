@@ -594,3 +594,41 @@ Some birds may even stop migrating if winters and mild enough that they can tole
 
 ​	I want my children to have same world of opportunities available to them that are avaiable to any other child in any other part of the United States, Tuaus said in an editorial for Samoa News published in July 2012.I for on believe that our traditional leaders were right when they believed that US citizenship followed the American flag to our islands.
 
+# Oil Spill Kills More Than 2400 Animals
+
+> An unclear amount of oil has leaked into Colombia's waterways, and enviromental activists are saying an oil company is to blame
+
+​	At the beginning of March, an oil well in northern Colombia burst, spewing an unclear amount of oil into the Megdalena River, a principal waterway that flows about 950 miles northward through the western half of the country. Over the next month, reports say the crude killed more than 2400 animals, including cattle, fish, birds, and reptiles,in the department of Santander. More than 1000 tree species in the area have been damaged, and familes have been relocated and treated for vomiting, headaches, and dizziness associated with the spill.
+
+​	I have practically nothing to eat, we have lived throuhg the river all our lives and the contamination has already reached the Magdalena, one resident tells local media.
+
+​	Conservationists say this environmental disaster is the worst the country has seen in decades, and the number of barrels spilled is unclear.Ecopetrol, the state-owned oil company that some environmental activists are blaming for the spill,says there were 550 barrels of crude spilled, but some local outlets are reporting that as many as 24000 barrels were spilled.
+
+​	Although Ecopetrol says nearly 1250 animals have been rescued and the spill is under control, the crude continues to flow, locals say. So far, it's seeped about 15 miles to contaminate the Lizama and Sogamoso Rivers. An investigation of the cause of the leak is ongoing, and few details have been revealed.
+
+​	Oil spills often have lasting effects, and the country has had other environmental problems . Last week, a report revealed that Colombia's Cauca River, which is south-west of the spill site, is unsafe for humans. According to the Cali-based newpaper EL Pais, carcinogenic heavy metals have been found in fish species eaten by humans.
+
+​	Oil spills don't discriminate geographically.In 2013, a train carrying crude catastrophically derailed in Canada, killing people, destroying buildings, and of course,spewing oil.In 2010, the infamous Deepwater Horizon oil spill leaked more than 200 million gallons into the Gulf of Mexico, it the worst spill in US history.
+
+​	The Colombia oil spill mirrors several that happened in Peru in 2016, which researcher and National Geographic Explorer Rebecca Wolff covered as an independent journalist. Some reports say that more than  450 local people sought medical attention for health problems related to oil contamination, but others likely suffered without treatment.
+
+​	When oil spills happen, just coming into contact with oil in the short term has incredibly horrible side-effects, Wolff says.
+
+​	Oil spills not only affect the flora and fauna of the environment, but farmland as well. Contaminated fields prevent locals from cultivating the land, and chemically poisoned fish—a protein packed dietary staple—must be taken out of the diet.
+
+​	In addition to the symptoms reported by the Colombian locals, people suffering from oil contamination can experience respiratory issues,skin rashes, fatigue, and seemingly undiagnosted illnesses lasting months or years. Spill-related condictions can also kill children.
+
+​	Wolff adds  that it can take days for local government to get involved right after a spill, so community members are often left to try to clean up their environment without adequate protection. Not enough studies have been done on the lasting consequences of oil spills, she says, since government intervention normally stops 60 days after the initial spill.
+
+​	There is continual danger for years and years of what's in the fish and what's in the water, Wolff says. If you ruin the water and the land that people depend on , their livelihood is gone.
+
+	## HOPE FOR THE FUTURE
+
+​	Local and international attention can shed light on oil spills and their consequences,ultimately helping conmunities recover over time.
+
+​	Usually, people are just really angry or upset for a long time to come, Wolff says.She adds that cases locals brought to court about the Peruvian oil spills kind of sent the message to the country that people were not  OK with this.
+
+​	She says long-term medical care and financial support are crucial for helping communites respond to these types of disasters,as are support and recognition from the goverment.
+
+​	The world needs to pay better attention and have better response plans, Wolff says.all over the world , but I don't think we've come to a way to respond and support afterwards.
+
