@@ -622,7 +622,7 @@ Some birds may even stop migrating if winters and mild enough that they can tole
 
 ​	There is continual danger for years and years of what's in the fish and what's in the water, Wolff says. If you ruin the water and the land that people depend on , their livelihood is gone.
 
-	## HOPE FOR THE FUTURE
+##HOPE FOR THE FUTURE
 
 ​	Local and international attention can shed light on oil spills and their consequences,ultimately helping conmunities recover over time.
 
@@ -631,4 +631,32 @@ Some birds may even stop migrating if winters and mild enough that they can tole
 ​	She says long-term medical care and financial support are crucial for helping communites respond to these types of disasters,as are support and recognition from the goverment.
 
 ​	The world needs to pay better attention and have better response plans, Wolff says.all over the world , but I don't think we've come to a way to respond and support afterwards.
+
+# A Running List of How Trump Is Changing the Environment
+
+> The Trump administration has promised vast changes to US science and environmental policy-and we're tracking them here as they happen.
+
+​	The Trump administration's tumultuous first year has brought a flurry of changes-both realized and anticipated to US environmental policy.Many of the actions roll back Obama-era policies that aimed to curb climate change and limit environmental pollution, while others threaten to limit federal funding for science and the environment.
+
+​	It's a lot to keep track of , so National Geographic will be maintaining an abbreviated timeline of the Trump administration's environmental actions and policy changes , as well as reactions to them. We will update this article periodically as new develops.
+
+	## EPA STARTS ROLLBACK OF CAR EMISSIONS STANDARDS
+
+​	In a press release ,EPA administrator Scott Pruitt announced that the US  goverment would revisit the Obama administration's fuel effciency standards for cars and light-duty trucks-the first step in a  rollback of one the US biggest efforts to curb carbon emissions.
+
+​	In July 2011, President Obama announced he would tighten regulations of vehicle greenhouse gas emissions, with rules that first finalized in August 2012.Under Obama fuel efficiencies equivalent to 545 miles per gallon by model year 2025
+
+​	About a sixth of US greenhouse gas emissions in 2016 came from passenger cars and light-duty trucks. Overall , the Obama program would've reduced greenhouse gas emissions by 6 billion metric tons-more than the total CO the US emitted in 2016.
+
+​	The EPA commited to finishing a midterm evaluation of the 2022–2025 standards by no later than April 1, 2018 .On January 12, 2017, outgoing Obama EPA administrator Gina MaCarthy finalized the evaluation and reaffirmed the stringent emissions standards.
+
+​	At the time, car manufacturers argued that the 2022-2025 standards were unrealistic , expensive, and politically rushed.The Trump administration has enthusiastically echoed these sentiments; it restarted the midterm evaluation in March 2017.
+
+​	The Obama administration's determination was wrong. Pruitt said in a statement.Obama 's EPA cut the Midterm Evaluation process short with politically charged expediency, made assumptions about the standards that didn't comport with reality, and set the standards too high.
+
+​	Automakers struck a guardedly pleased tone in release about the announcement, seemingly leery that they be getting more rollbacks out of  the Trump EPA than they originaly bargained for.Already, environmental and public health groups are voicing fierce opposition.
+
+​	Starting a process to weaken clean car standards marks yet another step backward from the fight to curb climate change, said Harold P Wimmer, the national president and CEO of the American Lung Association, in a statement.Climate change poses serious threats to millions of people, especially to some of the most vulnerable Americans , including children, older adults and those living with chronic disease as asthma.
+
+
 
