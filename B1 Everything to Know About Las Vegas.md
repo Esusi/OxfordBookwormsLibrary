@@ -658,5 +658,35 @@ Some birds may even stop migrating if winters and mild enough that they can tole
 
 ​	Starting a process to weaken clean car standards marks yet another step backward from the fight to curb climate change, said Harold P Wimmer, the national president and CEO of the American Lung Association, in a statement.Climate change poses serious threats to millions of people, especially to some of the most vulnerable Americans , including children, older adults and those living with chronic disease as asthma.
 
+# Why This Giant Crack Opened Up In Kenya
+
+> The region has yielded a trover of archaeological finds in the past and may border a new continent 50 million years in the future.
+
+​	Mai Mahiu-Narok road, in a region just west of Nairobi, Kenya,used to be fully intact.
+
+​	Then, after a period of heavy rainful late last month, a massive crack was exposed . According to the local news outlet, Daily Nation,it measures 50 feet deep and 65 feet wide in some spots.
+
+​	Geologist David Adede, who spoke with the paper , said the crack was likely filled previously with volcanic ash from nearby Mt. Longonot.This  means the  space was only exposed when rainwater washed the ash away.
+
+​	Reuters reports that the opening formed rapidly. One resident named Eliud Njoroge Mbugua saw the crack run through his home. He was only narrowly able to collect some of his belongings before his house collapsed.
+
+​	So what caused the break in the first place?
+
+## GREAT RIFT
+
+​	The crack, only recently exposed from its hiding place in the Earth, in part of the Great Rift Valley.
+
+​	The name is often used to refer to a cultural region from the Middle East to Mozambiqeu,but is not actually connected to the same unit.Rather it's made of multiple rifts all running through the same system.
+
+​	A rift valley refers to a lowland region where tectonic plates rift, or  move apart.The large crack that recently exposed itself in Kenya is from the East African Rift.In the 3700 mile-long East African Rift, there are two smaller systems called the Gregory Rift and the Western Rift, and each is speckled with volcanoes.
+
+​	The rifts are growing larger as two tectonic plates, the Somali plate in the east and the Nubian plate in the west , move away from each other.
+
+​	The region has yielded some of history's most important archaeological finds and has been nicknamed the cradle of humanity. Turkana boy. a 1.5 million year-old hominin skeleton was found there. It's an important piece of evidence for scientists piecing together our prehistoric past.
+
+​	While it's one of the largest, the East African Rift isn't the only geological formation of its kind.Eastern Russia is home to the Baikal Rift Valley, and Antarctica is separated by the West Antarctic Rift.
+
+​	In the US the southwest is sliced by the Rio Grande Rift Valley , which stretches from Chihuahua, Mexico to Colorado.It's formation, roughly 30 million years ago, is responsible for the Rio Grande River bordering the southern US.
+
 
 
