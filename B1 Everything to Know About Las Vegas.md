@@ -688,5 +688,25 @@ Some birds may even stop migrating if winters and mild enough that they can tole
 
 ​	In the US the southwest is sliced by the Rio Grande Rift Valley , which stretches from Chihuahua, Mexico to Colorado.It's formation, roughly 30 million years ago, is responsible for the Rio Grande River bordering the southern US.
 
+# Go Beyond the Beach in Grenada
 
+> The dramatic landscapes of this volcanic island in the Caribbean beg to be explored
+
+​	While many area of the Caribbean are still recovering from 2017's devastating hurricanes, Grenada escaped any damage and is a hotter destination than ever. The former British colony boasts dramatic mountainous  landscapes and a rich spice-producing heritage.Here are the top five reasons to visit this volcanic isle.
+
+## HISTORIC ST. GEORGE'S
+
+​	Grenada's capital, founded by the French in 1650,is a charming jumble of stone buildings with colorful facades that rise along steep hills around the deep Inner Harbour. The imposing Catholic cathedral dominates the skyline, while the harbor waterfront, known as the Carenage is lined with restored George, a 300-year-old fortress with working cannons ,for 360-degree views of the city, harbor, and Caribbean Sea. For a unique underwater adventure , dive trips frequently depart St. George's for the Underwater Sculpture Garden in nearby Molinere Bay, where dozens of human figures in whimsical poses from a fascinating artificial reef that attracts a wide array of sealife.
+
+## WINDWARD COAST
+
+​	While tourists flock to hotspots such as Grand Anse Beach south of ST. George's, go off the beaten path to Grenada's rugged Atlantic coast. Back roads will bring you to hidden coves with golden beaches bare of footprints and coral reefs just offshore that are perfect for snorkeling. Stay at Cabier Ocean Lodge, an eco-friendly resort perched on a peninsula between two bays, where the soft roar of the waves sounds all night long. The on-site restaurant, Bruno's has a seaside terrace shaded by mango trees and serves up passionfruit mojitos and Grenadian favorites such as callaloo soup, a creamy soup made from the green leaves of the callaloo plant.
+
+## WATERFALL SPLENDOR
+
+​	Grenada is especiallly rich in waterfalls that tumble down its volcanic slopes. The highest is Royal Mount Carmel Falls, a spectacular cascade that pours 70 feet over a  sheer rock wall . Local guides lead visitors a trail through lush greenery that opens up to a breathtaking view of the falls. Don't forget to bring your swimsuit- a broad natural swimming pool at the base invites taking a dip, welcome after the hot jungle walk.
+
+## SPICE ISLE
+
+​	A British import in the 19th century, nutmeg trees flourished in Grenada's tropical climate, and the small island now produces almost a third of the world's supply of nutmeg.Cinnamon, cloves , mace, and ginger also exported, as well as organic Grenadian chololate that's grown and diectly produced from the island's many cacao farms. Spice naturally plays a large part in Grenadian cuisine—don't miss farms.Spice naturally plays a large part in Grenadian cuisine—don't miss trying nutmeg ice cream or nutmeg jelly —and even medicine. Hit up the Spice Market in ST George's for a vast array of spices, or travel farther afield to Grenville's local market, where you can find fresh ginger, coconuts, passionfruit, and blocks of chocolate.On the west side of the island, tour the Gouyave Nutmeg Station, where you can watch sorting and packaging.
 
