@@ -710,3 +710,27 @@ Some birds may even stop migrating if winters and mild enough that they can tole
 
 ​	A British import in the 19th century, nutmeg trees flourished in Grenada's tropical climate, and the small island now produces almost a third of the world's supply of nutmeg.Cinnamon, cloves , mace, and ginger also exported, as well as organic Grenadian chololate that's grown and diectly produced from the island's many cacao farms. Spice naturally plays a large part in Grenadian cuisine—don't miss farms.Spice naturally plays a large part in Grenadian cuisine—don't miss trying nutmeg ice cream or nutmeg jelly —and even medicine. Hit up the Spice Market in ST George's for a vast array of spices, or travel farther afield to Grenville's local market, where you can find fresh ginger, coconuts, passionfruit, and blocks of chocolate.On the west side of the island, tour the Gouyave Nutmeg Station, where you can watch sorting and packaging.
 
+# Famous Japanese Snow Monkeys Take Baths to Lower Stress
+
+> Just like us, snow monkeys may cope with winter weather by taking warm baths, a new study found.
+
+​	There's a reason macaques look so serene in their photos. Submerged up to their cheeks in steamy water with sonw drifting onto their furry heads-they look almost meditative.
+
+​	Researchers always suspected the monkeys used the hot springs to stay warm in the winter, and a new study published in the journal Primates confirms this.While the researchers suspected this was the case, the finding could still illuminate how the monkeys cope with stress.
+
+​	Of all the primates in the world, Japanese macaques live the farthest north.For decades , they've been observed taking baths in Jigokudani Monkey  Park in Japan. Their behavior has becom so endearing to people that thousands of tourists often trek north to take a peak at the snow monkeys' bath time.
+
+​	In the mountainous regions of Japan, winters can be harsh. While the monkeys are lounging in a calm pool of water, they're often subjected to intense snowfall  and freezing temperatures. 
+
+​	To see exactly what kind of  benefit the macaques got from their baths, a group of researchers from Japan's Kyoto University tracked 12 females. Their bahavior was observed in two different seasons: their birth season, from April to June, and their winter season, from October to December.The scientists looked at which monkeys bathed the most often and for how long.
+
+​	They then measured the amount of a  hormone called glucocoricoid from the monkeys' fecal samples. Glucocoritcoids come from a family of steroid hormones and are produced when the monkeys undergo stress—ofen from trying to maintain a body temperature that's not too cold and not too hot.
+
+## SOOTHING BATHS
+
+​	The team's results confirmed that the monkeys used the hot springs more frequently during winter months. Females who had higher social standing were documented taking longer baths
+
+​	When the researchers then measured the amount of glucocorticoid in females who took longer baths, they found lower levels of the stress hormone than in famales who hadn't bathed at all. This means the females experienced less stress from trying to regulate their body temperatures.
+
+​	Whether the long baths influenced other stress hormones is unclear.Researchers plan to next study saliva samples to measure other hormones related to stress. They theorize that, by lowering stress, the baths could benefit the macaques' likelihood to reproduce and thus ensure their survival.
+
