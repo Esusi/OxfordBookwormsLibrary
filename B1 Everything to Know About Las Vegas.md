@@ -734,3 +734,40 @@ Some birds may even stop migrating if winters and mild enough that they can tole
 
 ​	Whether the long baths influenced other stress hormones is unclear.Researchers plan to next study saliva samples to measure other hormones related to stress. They theorize that, by lowering stress, the baths could benefit the macaques' likelihood to reproduce and thus ensure their survival.
 
+# Pakistan's Most Wild and Beautiful Places
+
+> Journey from the Arabian Sea to the ivory cones of the Himalayas.
+
+​	From the precipitous peaks of the Karakoram range to the fertile Indus River plain, Pakistan is home to a diversity of stunning landscapes . While its rich cultural heritage, ancient Silk Road, and ruins of Moenjo-daro continue to enchant travelers, wenture further afield and discover a lesser-known, wilder Pakistan.
+
+## DEOSAI NATIONAL PARK
+
+​	Known as Land of the Giants, a backdrop of snow-dusted mountains rises from the alpine plateau of Deosia National Park. Each spring, the lush valley is swept by wildflowers and rare butterflies, earning the name Summer's Places by locals, who enjoy the wildlife after winter's thaw. This biodiversity hot spot is home to the Tibetan wolf, Himalayan ibex, Tibetan red fox, and golden marmots, but the government granted the park protected status in 1993 with the goal of safeguarding the critically endangered Himalaan brown bear. The park was also nominated for World Heritage status in 2016.
+
+## KAGHAN VALLEY
+
+​	Northern Pakistan's picturesque Kaghan Valley is a place of fairytales.According to one version of a local legend, a prince of Persia fell in love with a fairy princess on the crystalline waters of Lake Saiful Muluk, pictured above. But a giant was also in love with the princess, and held her captive.One day , the prince escaped with her , and in his fury, the giant flooded the valley and created lakes with his tears.Today, visitors from around the world travel to Kaghan Valley for its alpine lakes, mountain scenery , and clear night skies.
+
+## MAKRAN COAST
+
+​	The Makran Coastal Highway is a scenic drive along Pakistan's Arabian Sea coast. The route starts in Karachi and runs through Gwadar to the Iran border, and is considered a major infrastuctual acheevement.Unique, lunar rock formations line a section of the highway known as the Buzi Pass in Hingol National Park. Natural rock sculptures, like the sphinx-shaped Lion of Balochistan, can be found along the highway.
+
+## HUNZA
+
+​	In the nothern territory of Gilgit- Baltistan , icy peaks stretch above the Hunza River. Situated on the riverbank and surrounded by glaciers and gorges, the town of Hunza traditionally served as a  resting place for  travelers descending the Hindu Kush mountains into the Vale of Kashmir. The valley is home to snow leopards , markhors, ibexes,and red-striped foxes.
+
+## HINGOL NATIONAL PARK
+
+​	Pakistan's largest national park extends hundreds of miles along the Makran Coast. While Hingol Naitonal Park is renowned for its diverse wildlife—Sindh leopards, chinkaras, honey badgers, and Indian pangolins—it is perhaps best known for its cluster of active mud volcanoes . A mix of hot spring activity, gas, and water react chemically with the surrounding rocks to form a boiling mud. When the mud is expelled, it continuously rebuilds the cones, which are easily eroded. One of the most famous mud volcanoes is Chandragup , a sacred annual pilgrimage site for thousands of Hindus , along with the nearby Hinlaj temple.
+
+## BALTORO GLACIER
+
+​	In Pakistan's eastern Karakoram, Baltoro Glacier is one of the world's largest valley glaciers. Though diffcult to access, it is one of the most highly trafficked regions in Pakistan because of mountaineering destinations like K2, Broad Peak, and the Gasherbrum peaks at its head. The area is not only known for its stunning scenery , but as a life source— a large protion northern Pakistan's population depends on meltwater from the Karakoram glaciers.
+
+## NEELUM VALLEY
+
+​	In northern Azad Kashmir, the bow-shaped Neelum Valley is sandwiched between 13000-foot peaks and blanketed by verdant forest and streams.The small hilltop village of Arang Kel, pictured above,is known as the pearl of Neelum Valley.
+
+## ATTABAD LAKE
+
+​	Nestled in the Hunnza Valley, attabad Lake's vibrant turquoise waters cut through the rocky terrain. Though beautiful, the serene landscape has a violent origin story. The lake was formed in January 2010,when a massive landslide at Attabad Village flooded nearby towns, blocked the flow of the Hunza River, and displaced thousands of people . Today , it's a popular stop for tourists who can take boats out on the water.
