@@ -791,3 +791,48 @@ Some birds may even stop migrating if winters and mild enough that they can tole
 ​	The hotel, which is slated for  launch into low Earth orbit at around 200 miles from the Earth's surface, will be about the size of the cabin of a large private jet. Company representatives say it will be roughly 43 feet long by 14 feet wide, with a pressurized volume of 5650 cubic feet. By comparison , the ISS in much larger, at 357 feet long , an internal pressurized volume of 3223 cubic feet, and soars 250 miles above Earth .
 
 ​	Completed,Aurora Station will be fully modular and  host six people at a time with private, two-person suites. Four of those people will be guests and two will be crewmembers who are most likely former astronauts, the company says. With the help of engineers who have worked on the ISS , the hotel is currently in construction in Housten,while Orion Span develops software for it in the Bay Area.
+
+# Meet the Beetles that Harvest Fog in the Desert
+
+> It's just one weird way animals drink.
+
+​	What's the one thing no life form can do without?
+
+​	It's not coffee, a smartphone, or even Netflix. It's water. Every living thing needs it, but we have surprisingly differnet ways of ingesting it.
+
+​	Here are some peculiar ways different animals enjoy a drink.And no, pickle margaritas are not on here.
+
+## LAP DOG
+
+​	Monkeys and other apes lean down to drink, says Don Moore, director of the Oregon Zoo in Portland, but  the southest Asian gibbons drink water through cupped hands , a very cool behavior, especially if these acrobats are hanging upside down in a tree.
+
+​	Dogs also form a cup-sort of —with their tongues.
+
+​	Research from Virginia Tech in 2015 found they curl their tongues toward themselves in  a kind of ladle. A column of water splashes upwards , and they grab that while taking in what tongue catches.
+
+​	When snakes drink , it doesn't look like they are doing much of anything, Moore says, but there's a lot going on behind the scenes.
+
+​	In a 2012 study David Cundall of Lehigh University and colleagues found that some species drink via capilary action, the same mechanism by which water climbs from roots to leaves in plants.
+
+​	Snakes have skin folds in their lower jaw that expand to accommodate large prey. When they put their mouths in the water, those skin folds expand and absorb the liquid like a sponge via capillary aciton, then muscles squeeze it down into the gut.
+
+## WATER IN THE DESERT
+
+​	Where there's little water to be had, animals come up with very innovative ways to collect it.
+
+​	The sandgrouse, a relative of the pigeon , lives in arid parts of Africa,Madagascar, southern Europe, and southern and Central Asia. The way the male feeds is  chicks is so extraordinary it was once believed to be a myth.
+
+​	Each day, the male commutes to a water hole, where he'll sit and rock back and forth . He's soaking up water in his specialized belly feathers, which have a coiled barbule which makes them extra spongey. They can hold up to 1.35 ounces, or 2.7 tablespoons , compared to other birds at .0002 ounces.
+
+​	The papa sandgrouse then returns to the nest , bringing back water for his young in his soaked feathers.
+
+​	For Australian thorny devils, spikey lizards up to almost eight inches long, morning dew collects on bodies, and it drips through skin grooves toward the mouth where the creatures can slurp it up, Moore says. They'll throw moist sand on their backs to extract water in the same way, it's believed.
+
+​	Thorny devils can also drink through their feet, a 2016 study found. Microstructures between their scary scales act like little straws, using the force of capillary action to pull in water from moist sand.
+
+​	Other desert dwellers pull water right out of the air.
+
+​	The Namibian desert beetle has this complex micro-sculpture on its exoskeleton where it will collect dew from the air, say Katy Prudic , an extomologist at the University of Arizona . 
+
+​	When fog rolls into the desert, about six times a month, the beetle will stand with its butt in the air, letting those structures on its back capture moisture and funel it down into their mouths.
+
