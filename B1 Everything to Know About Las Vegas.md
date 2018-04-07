@@ -771,3 +771,23 @@ Some birds may even stop migrating if winters and mild enough that they can tole
 ## ATTABAD LAKE
 
 ​	Nestled in the Hunnza Valley, attabad Lake's vibrant turquoise waters cut through the rocky terrain. Though beautiful, the serene landscape has a violent origin story. The lake was formed in January 2010,when a massive landslide at Attabad Village flooded nearby towns, blocked the flow of the Hunza River, and displaced thousands of people . Today , it's a popular stop for tourists who can take boats out on the water.
+
+# Luxury Space Hotel Could Cater Travelers by 2022
+
+> Soon after launch in 2021, the startup Orion Span hopes to send up extraterrestrial condos to capialize on open space.
+
+​	With all the madness going on here on Earth, have you ever thought about going into space? Well , for a couple million dollars, you might be able check off that bucket list-worthy to-do in the next four years.
+
+​	Orion Span, a Houston-based space tech startup, has announced plans to launch the first-ever luxury space hotel into Earth's orbit by 2021. The company says the so-called Aurora Station will be ready to accommodate visitors the following year.
+
+​	The price of a ticket for a 12-day stay will be 9.5 million per person, which comes to 7898 per night.
+
+## NOT YOUR AVERAGE SPACE STAY
+
+​	Orion Span has yet to contract with a launch provider to put future visitors—and the station—into orbit. In the past, private citizens have been seen to the International Space Station on 20 to 40 million round-trip tickets, but according to Frank Bunger, the company's founder and CEO, Orion Span's trips are less expensive because of declining launch prices. Right now, prospective flyers can put down an 8000 refundable deposit for future stays.
+
+​	Upon launch, Aurora Station goes into service immediately, bringing travelers into space quicker and a lower price point than ever seen before, Bunger says in a statement . Our goal is to make space accessible to all, by continuing to driver greater value at a lower cost.
+
+​	The hotel, which is slated for  launch into low Earth orbit at around 200 miles from the Earth's surface, will be about the size of the cabin of a large private jet. Company representatives say it will be roughly 43 feet long by 14 feet wide, with a pressurized volume of 5650 cubic feet. By comparison , the ISS in much larger, at 357 feet long , an internal pressurized volume of 3223 cubic feet, and soars 250 miles above Earth .
+
+​	Completed,Aurora Station will be fully modular and  host six people at a time with private, two-person suites. Four of those people will be guests and two will be crewmembers who are most likely former astronauts, the company says. With the help of engineers who have worked on the ISS , the hotel is currently in construction in Housten,while Orion Span develops software for it in the Bay Area.
