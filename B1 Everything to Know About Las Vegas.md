@@ -836,3 +836,38 @@ Some birds may even stop migrating if winters and mild enough that they can tole
 
 ​	When fog rolls into the desert, about six times a month, the beetle will stand with its butt in the air, letting those structures on its back capture moisture and funel it down into their mouths.
 
+# Three Billionaires Are Racing to Space. Who Will Win?
+
+> Elon Mush is eyeing Mars, Jeff Bezons aims for the moon, Richard Branson is all about space tourism.Some say they should save Earth first.
+
+​	They've all ridiculously rich , they're all men, and now they all have their sights set on the stars.Elon Mush wants to fly to Mars.Jeff Bezos,of Amazon, dreams of putting a colony on the moon. And Richard Branson wants to offer luxury space tourism under the Virgin banner.
+
+​	What motivates these men? And shouldn't they be spending their billions to make this planet a better place? Speaking from his home in Washington, DC,Christian Davenport, author of The Space Barons, reveals the intense competition that animates these billionaires;discussce their different visions for exploring the cosmos; and explains why women are still so underrepresented in space.
+
+​	They're very different. Elon Mush is a marketing genius who gets a lot of  attention from the media, a lot of it self-generated. By contrast, Bezos is much quieter and more clandestine.His project, Blue Origin, has been secretive for  many years. Most people don't realize it's been around since 2000 and that's precisely how Bezos wants it.
+
+​	Elon has come out of the gate very early and tired to get a lot of attention. In 2003, he took mock-up of his Falcon One rocket and paraded it down on the National Mall in  Washington to try to get the attention of NASA. From the beginning, he was out trying to get attention and move very quickly with his company. Bezos's motto is , Slow is smooth and smooth is fast.He 's content to be very deliberate and patient, and take his time to work through the steps methodically, out of the limelight and public eye.
+
+## One of the drivers for these space barons is a belief that the Earth is headed for extinction, so they want their own, private stairway to heaven. Shouldn't they, like Bill Gates, be putting their billions into making this planet better?
+
+​	That's a great question. Elon Mush in particular has said that if something should happen to Earth, if there was some extinction event, like an asteroid hit the Earth, or humanity was to go the way of the dinosaurs, we should have a backup plan, like putting humainity on Mars, backing up the human race the way you back up your computer on a hard drive.
+
+​	Jeff Bezos thinks about it a little differently.He says that Plan B should be to make sure that Plan A works; that Earth should be preserved and protected . The way to do that is to go to space because Earth has limited resources— there's only so much coal and fuel and gas— but space has unlimited resources.
+
+​	But I think it's worth debating: is space the best use of their funds? Their motivations are varied. There's this motivation to do something better for humanity, there are economic motivations, there's the rivalry between them, then there's this simple goal that they just want to go to space as an adventure.
+
+## The third space baron once signed the Sex Pistols to his record label and has the motto , Screw it, let's do it. Tell us about Richard Branson and his Virgin Galactic program.
+
+​	Branson has done all sorts of crazy adventures . He flew a balloon across the Pacific ,as part of marketing his global Virgin brand , with the idea to land in Southern California, but they crashed into a frozen lake in Canada. Another time, he tired to aross the Atlantic from Maine to the UK but his pilot ended up bailing out, leaving Richard all by himself to bring the thing down.
+
+​	Virgin Galactic wants to take tours flying to the edge of space in a cool-looking, sexy spacecraft called Spaceship 2, tethered toa mother ship. It would fly to about 35000–4000 feet, the pilots would ignit the engines, and off you would go , shooting into space. Tickets cost about 25000 ,but the  idea is that eventually the cost of the ticket would go down so that you could start getting regular people going up into space. You would unbuckle from your seatbelt and float around the cabin, look out the window, see the curvature of the Earth-that transformative view that astronauts have been talking about for decades.
+
+​	But it's not come as quickly or as easily as Branson though. It's had multiple setbacks and delays, including a fatal crash in 2014, which killed one of the pilots. But Virgin Galactic has continued to press on with their program and we could see the first flights start as soon as  this year.
+
+## A space rocket is , of course , the ultimate phallic symbol. And reading your book I couldn't help feeling that, ultimately, this is like a schoolyard bragging contest for rich men: Mine is bigger than yours! Or am I being facile?
+
+​	Competition is key to this . It's what got us to the moon in the Apollo era, going up against the Soviet Union. NASA as the time got a lot of funding, but was essentially an adjunct of the Pentagon and the space race was in some ways a military program. Since then, we have been sending astronauts to the International Space Station, but that's only 250 miles away. It's an amazing engineered object, but it's not as ambitious as going to the moon.
+
+​	What these billionaires have done is inject competition back into the space industry and created a new space race. At times, it's gotten tense between them.There have been lawsuits, harsh word on Twitter, and a lot of  back and forth. But ultimately, I think they realize that they need each other, that competition is  good. It will make them more effcient, safer, and more innovative.
+
+​	There is definitely something about having a big rocket. They obviously have huge egos and ambitions, and there's no bigger ambition than space. It's such a challenge; it requires not just an immense amount of resources, but guts and courage, because the  chances of failure are so high.
