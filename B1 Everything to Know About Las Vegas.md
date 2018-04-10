@@ -871,3 +871,98 @@ Some birds may even stop migrating if winters and mild enough that they can tole
 ​	What these billionaires have done is inject competition back into the space industry and created a new space race. At times, it's gotten tense between them.There have been lawsuits, harsh word on Twitter, and a lot of  back and forth. But ultimately, I think they realize that they need each other, that competition is  good. It will make them more effcient, safer, and more innovative.
 
 ​	There is definitely something about having a big rocket. They obviously have huge egos and ambitions, and there's no bigger ambition than space. It's such a challenge; it requires not just an immense amount of resources, but guts and courage, because the  chances of failure are so high.
+
+# How Do You Protect Endangered Animals at Night? Ask an Astrophysicist.
+
+> To covertly watch animals targetd by poachers, this team of scientists wants to send in the drones.
+
+​	What do animals and galaxies have in common ? Under a thermal  infrared camera, they both glow.
+
+​	The similarity is now helping conservationists monitor endangered animals that are often targeted by poachers. By depolying small with infrared cameras attached, scientists are developing tools for wildlife officials to watch these wild animals without disturbing them.
+
+​	At night, when poachers are most likely to strike, wildlife guards have a difficult time spotting animals in the dark. But on infrared cameras, they're impossible to miss. On video , the landscape appears a dull pink and purple color. In contrast, animals and humans—anything that gives off a heat source—appears yellow. The warmer an object, the brighter it appears.
+
+​	The interdisciplinary research team conducted a separate trial last September, during which they went to South African to search for Riverine rabbits. The rabbits are one of the most endangered species of mammal in the world, and only about 1000 have been spotted ever.
+
+​	Flying the drone 65 feet in the air, the researchers were able to see five rabbits on camera.
+
+​	The drones were also tested at the Knowsley Safari and Chester Zoo near Liverpool , England. In video footage, bright yellow rhinos and elephants are easily spotted.
+
+​	In addition to high-tech cameras, the system is supported by a machine learning program developed from an open-source software repository called Astropy. The software supports the camera by learning how to identify different tpyes of animals in various landscapes.
+
+​	It's the same glow the galaxies have, says astrophysicist Claire Burke from Liverpool John Moores University in the UK Burke's work has focused more on search for the thermal glow of far—off galaxies, but she adapted the software to find endangered animals.
+
+​	Once you've detected them , you can learn their thermal profile, she adds.
+
+Knowing an animal's unique thermal profile, the software is then able to learn how to identify various species.
+
+​	Burke says this information could also be used to take accurate population counts. Current methods rely on human counting or studying the remains, like nest, that animals leave behind.
+
+​	The drones could also be used in search—and—rescue operations. Its cameras would ba able to see heat signatures through fog, a feat that's diffcult for human eyes. Injured or sick animals could also potentially be identified when they experience a spike in temperature.
+
+​	The results of the software thus far were recently presented at an annual meeting of the European Astronomical Society.
+
+​	Despite its potential, the sofeware still contains some limitations. Humidity has been noted as an issue, and warmer climates make the animals more diffcult to spot. When the ground is  warmer, the thermal images appear less distincet, so on camera, the animals don't pop.
+
+## THE THREAT FROM POACHING
+
+​	Despite the limitations , conservationists are excited about  how the technology could be used.
+
+​	There's no shortage of demand for tools that can be used to stop poaching. Just a few weeks ago, Sudan, the last northern white rhino, died. Only two individuals both femals , remain of the sub-species. It was a reminder of the extent of damage poaching can have.
+
+​	For the last year of his life , Sudan was under 24/7 armed guard.
+
+​	Rhinos are aggressively poached. In the past year, more than 1000 were killed by poachers, a slight drop after an explosion of illegal poaching in the past decade.
+
+​	In addition to guards and sniffer dogs, parks like Kruger National Park in South Africa have searched for high-tech methods to stop poachers. Sonar and movement-detecting senesors have been installed to the tune of nearly 6 million dollars.
+
+​	Once May, the team of astronomers and ecologists will look for orangutans in Malaysia and spider monkeys in Mexico before heading to Brazil to search for river dolphins.
+
+# This Man Has Helped Give 460 Dead Whales a Second Life-As Art
+
+> Hori Parata handles dead whales on New Zealand beaches the Maori way: He extracts the bones so they can be carved into jewelry or art.
+
+​	When Hori Parata talks to a dead whale on a New Zealand beach, he welcomes it home. It is returning to where it was born , he says.
+
+​	The earliest whales walked on land— evolutionary biologist learned this from fossils that show a four—legged land animal gradually evolving into a mariine mammal around 50 million years ago. Parata 75 learned it from his elders among the Ngatiwai, a Maori tribe of northern New Zealand. The forest god Tane, they said , noticed that the whale , then a land animal, liked rivers and marshes—wet places. So Tane gave whales as a gift to Tangaroa, the ocean god.
+
+​	Parata is a Ngatiwai environmental resource manager, and for him a dead whale on a beach isn't just a smelly and potentially hazardous mess. It's a gift from the sea.
+
+​	Over the last 21 years he has flensed, or carved up, nearly 500 dead whales and other cetaceans on New Zealand beaches. He and a team of helpers remove the flesh and discard it, then clean the bones and teeth,which they distribute to Maori groups. Many of the bones end up as jewelry or staffs carved in the distinctive flowing, openwork style of Maori art, which often features fierce and beautiful stylized human fugures, spirals ,and fishhooks.
+
+​	Flensing today is a political statement—a very visible expression of Maori management of the environment, after generations of New Zealand's European settlers doing things their way. Maori harvest of dead whales has only been recognized as legal since 1998.
+
+​	But for Parata, each dead whale is also an individual. As he welcomes it home, he tells it, Your traveling in  the ocean is finished. Your life in the flesh is finished. We are going to give you a second life in the bone.
+
+## VERY LARGE GODSENDS
+
+​	Around the world , and not just among the Maori, beached whales used to be considered boons. In Iceland, the word havlreki means a godsend—but it  literally translates as stranded whale. In Iceland these days, whale carcasses are sometimes towed back out to sea and sunk, says Gisli Vikingsson, head of cetacean research at the Marine and Freshwater Research Institute.
+
+​	The situation is much the same in the United States, where 589 large whales were confirmed stranded and dead between 2007 and 2017, according to  the National Oceanic and Atmospheric Administration. Beyond  the sadness, the dead whales are seen as a nasty, smelly problem, especially since the bacteria on their skin can ba dangerous to humans.
+
+​	Occasionally they are towed out to sea. If they wash up in remote areas, far from people , they are often left to rot. On busy beaches a backhoe may be brought in to bury them. Since an infamous incident in Oregon in 1970, managers have wisely opted not to blow up dead whales with dynamite.
+
+​	In New Zealand , several hundred whales and dolphins come up onto beaches each year, according to a charity that to save them, Project Jonah. A year ago, 650 pilot whales came at Farewell Spit. Despite the efforts of thousands of volunteers, most died.
+
+​	The reasons for beaching are many, from confusion due to noise pollution in the sea to simply being caught by a fast—moving tide. In many cases, no one can tell why a whale came ashore. But Parata says the Maori have an explanation.
+
+​	A sick whale keeps sinking down, he says If a whale is on its own, it will head for the shore where it can lie on the bottom with its head out the water so it can breathe. Our elders tell us that one of the reasons they strand is that when they are hurt, they are scard of drowning.
+
+## CUTTING FOR BONE
+
+​	When Parata's team arrive at the scene, they fill out paperwork and collect a tissue sample for lab testing with staff from the New Zealand Department of Conservation . Then wearing protective suits that flap in the brisk ocean breeze, they get down to the more physical work.
+
+​	They sharpen their blades and say a prayer, circled around the massive hulk of the whale. Hands covered in thick black gloves, they saw through the gray, mottled skin and into the pink blubber. Although a fresh whale cuts like butter, Parata say, decayed ones are stiff and difficult to cut into and harbor bacteria that can cause a nasty infection if they get into a wound . Hence the gloves and the suits, which quickly become sodden with gore.
+
+​	Working section by section , the team use huge metal hooks to peel back the flesh and expose the massive , sculptural whale bones.The  flesh and intestines are buried on the beach and the fat is redered —cooked slowly—to extract its oil. Once the bones have carved out, they'll buried under a couple feet of clean sand, so maggots and other insects can find them and thoroughly clean them . The cleaning takes six months or a year, after which the bones are dug up, blasted with water, and then left to dry in the sun a few days.
+
+​	As they work, Parata and his team also talk to curious passersby. Many people feel an impulse to touch the whale. If you need to we will give you a pair of gumboots and some gloves to touch it, Parata says.
+
+​	If it takes more than a day to extrac all the bones, a member of Parata's team will sleep on the sand, guarding the whale—because sometimes public interest goes  beyond curiosity. Round about the time we were developing our protocol, people began chainsawing off the jaw or cutting a hole in the belly to get the amberis, Parata says. Ambergris, a substance sperm whales produce as part of their digestion, is a are and expensive  ingredient of prefumes.
+
+​	At the end, the team will bill DOC for the cost the operation. The government happily pays, since  the harvest also has the effect of dealing with a potential health threat and public nuisance.
+
+​	We rely heavily on his expertise, says Aaron Taikato , tribal relationships manager for DOC. It is about ensuring that the mama of the whale is kept intact. Mana, a complex Maori concept, refers to the honor, responsibilty , power, and authorty held by a perosn or thing , inherited and earned.
+
+
+
