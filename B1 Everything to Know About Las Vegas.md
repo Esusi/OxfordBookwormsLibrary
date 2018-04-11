@@ -964,5 +964,37 @@ Knowing an animal's unique thermal profile, the software is then able to learn h
 
 ​	We rely heavily on his expertise, says Aaron Taikato , tribal relationships manager for DOC. It is about ensuring that the mama of the whale is kept intact. Mana, a complex Maori concept, refers to the honor, responsibilty , power, and authorty held by a perosn or thing , inherited and earned.
 
+# How One Country Is Restoring Its Damaged Ocean
+
+> Belize was criticized for putting its stunning coral  reefs and other marine resources at risk. The country responded with innovative solutions.
+
+​	Belize City—the Astrum helicopter company launches from a base less than five miles from where Belize City meets the Caribbean. In the backseat , to my left, is Belizean Senator Valerie Woods. Across from us are two representatives from international ocean protection organization Oceana, which organized the flight, The country's minister of state, Carla Barnett, climbs into the front seat.
+
+​	I haven't been in a helicopter for a long time, she mutters, pulling on her headset. The doors shut , and we're off.
+
+​	As we rise above the trees, Belize City starts to spread out in front of us . But that's not our destination. Side-skirting downtown, we head out over the water —where the ture treasures lay.
+
+​	The Mesoamerican Reef stretches some 700 miles from Mexico's Yucatan Peninsula through Guatemala, to Honduras' Bay Islands. For 184.5 miles, the reef passes through Belizean waters. Along with the lagoons and atolls on either side of the main reef, the  collection is known as the Belize Barrier Reef System.
+
+​	Heading out over the water, we almost immediately fly over a manatee serve. The Oceana country director, Janelle Chanona, tries to point one below , but I miss it. Crossing over the reef—a thick ribbon of turquoise —we come to the Turneffe atoll, which is one of the country's seven marin protected areas .In the middle of the coral—ring is a lake of darker water. Tannins from the surrounding mangrove trees cause the color, Chanona explains—though, the trees are being chopped down at a rapid rate.
+
+​	The pilot does a 360 over Turneffe, then keeps going Now we're coming up to the Lighthouse Reef atoll, Chanona says, also pointing out the Glover Reef atoll in the distance. As we near Lighthouse Reef, the water is so clear that we see a group of eagle rays and nurse sharks swimming below us. The official welcome committee, she jokes.
+
+​	In his book Coral Reefs of The World, Charles Darwin called Belize home to the most remarkable reef in the West Indies. As we head further out, the turquoise alternates with various shades of blue. You can see the coral and rock formations through the water. The mosaic is mesmerizing.
+
+​	The colors get me every single time , said Chanona, staring out at the Caribbean . From the front seat, Barnett agrees. It's gorgeous.
+
+​	In 1996, Unesco designated the Belize Barrier Reef Reserve System a World Heritage Site, with the former British colony responsible for protection. It's a mandate that country has at times struggled with . By 2009, the site was on UNESCO's danger list, with the organization syaing that the country needed to enact better management and safeguards. But since that low point , Belize has worked to turn things around. And ocean conservation observers say there has been impressive progress. Hence the helicopter flight, which was a victory lap of sorts.	
+
+​	Just this December, Belize became the first country in the world to put a moratorium on all offshore oil exploration and drilling. Oceana had arranged the helicopter to help give politicians a sense of what they had protected, and what still needs to be done. I'm really looking forward to getting off the endangered list , Chanona said.
+
+## HEALTHIER REEF
+
+​	A day before the helicopter flight, the Healthy Reef for Healthy People Initiative issued its latest report card on the state of the Mesoamerican Reef. The report uses four metrics to assess:live coral, fleshy macroalgae, commercial fishing, and herbivorous fish.In the ten years since the report was first issued, the overall health of the Mesoamerican Reef has improved from a 2.3 to 2.8. Belize is currently at  2.8 as well. The sale, however, is out of 5.0
+
+​	Some argue that improvement should be faster. But reefs across the world are us against unprecedented threats, from development to climate change . So , the country's slow creep is , in many ways, a step forward. Still a ways to go , Chanona said, when Barnett asked  about the report. But better than going the other direction.
+
+​	Many of Belize's gains are tangible . There are ,for example, special environmental taxes here  that go directly to conservation and a booming eco-tourism market. In 2008, when the International Society for Reef Studies recommended that Mesoamerican Reef countries better protect parrot fish along the  reef, Belize was the first to respond with a law restricing their catch. The change is already showing up in HRI data.
+
 
 
