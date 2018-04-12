@@ -996,5 +996,27 @@ Knowing an animal's unique thermal profile, the software is then able to learn h
 
 ​	Many of Belize's gains are tangible . There are ,for example, special environmental taxes here  that go directly to conservation and a booming eco-tourism market. In 2008, when the International Society for Reef Studies recommended that Mesoamerican Reef countries better protect parrot fish along the  reef, Belize was the first to respond with a law restricing their catch. The change is already showing up in HRI data.
 
+# Photo of the Day:Best of March
 
+> Every day, we feature an image chosen from thousands submitted to our photo community, Your Shot. Here are some highlights from March.
+
+​	It's been about a year since I've taken over as a producer for Photo of the Day, and the standout  images from March underscore what I love so much about this series. Every day is a new peek at a different corner of the world, and every image has a story to tell on our planet's wildlife, landscapes, communities, and cultures. And it's all seen through the lens of our talented and diverse community , Your Shot.
+
+​	I'm always looking forward to where we'll go next , and the stories still to be told.
+
+# Close Call: How Howard Carter Almost Missed King Tut's Tomb
+
+> British backer Lord Carnarvon wanted to call off the search for the lost tomb of Tutankhamun after six fruitiless years of searching , But Howard Carter convinced him to stick it out for one  more season— resulting in the 20th century's most famous find.
+
+​	A hush fell on the group of British and Egyptian observers standing at the sealed doorway on November 26, 1922. Three weeks earlier, British archaeologist Howard Carter and his team had stumbled on a rubble—filled stairway in the Valley of the King in Egypt.
+
+​	Following the exacvations of the late 1800s many archaeologists thought the valley had yielded all its secrets. However, Carter had a hunch that there was still more to find . Egyptians began to bury their royalty in the Valley of the Kings during the New Kingdom . Carter was searching for the tomb of an obscure king from the 18th dynasty. The boy king has since become Eygpt's most famous pharaoh, but when Carter was digging, his name-tutankhamen—was only spoken in scholarly circles.
+
+​	Having cleard the debris from the stairs, Carter's team revealed the top of a doorway, sealed with plaster. Upon it were the undisturbed seals of the royal necropolis, a sight that made Carter's heart race with excitement. After ordering the staircase filled in, Carter sent a cable to his patron —the wealthy Lord Carnarvon—that said: At last have made wonderful discovery in valley; a magnificent tomb with seals intact.
+
+​	Carnarvon hurried to Egypt to wittness the opening of the tomb. As Carter and his team re-cleared the staircase to continue their work, the entire door was exposed, and the seals of Tutankhamun revealed. Carter's hunch was right. He had found the boy king. The door also bore signs of damage and repair, leading Carter to wonder if the tomb was indeed intact.
+
+​	The next day, the team assembled to open the tomb. With Carnarvon and other observers looking on , Carter drilled a small hole in the top corner of the doorway and placed a candle inside. The candle flickered, and Carter peered in. As his eyes grew accustomed to the darkness beyond, he heard Carnarvon asking: Can you see anything?
+
+​	Yes, Carter replied. Wonderful things. Wonderful things!
 
