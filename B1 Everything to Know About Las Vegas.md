@@ -1020,3 +1020,25 @@ Knowing an animal's unique thermal profile, the software is then able to learn h
 
 ​	Yes, Carter replied. Wonderful things. Wonderful things!
 
+# This is Europe's Unsung Cultural Capital— and Picasso's Birthplace
+
+> Inspired by his genius, the Spanish port city Malaga transformed itself into a cultural hub.
+
+​	In a painting from 1889 , a bullfighter on horseback enters the ring under the watchful eyes of spectators, ready to face his opponent. The canvas is a study of silent drama with the protatonist dressed in gold and those in the world oversized yet refined. Displaying emotional control , the artist subtlety melds warm tones with just a pop of red, alluding to the ineviatable event to come. The  painter was only eight years old, and would later become one of the 20th century's most famous creative geniuses . Pablo Picasso's earliest surviving painting was more than just a promist of future creations, but serves as a reminder of the significance his Andalusian roots played throughtout his life.
+
+​	Growing up in the  southern Spanish port city Malaga, he learned about bullfights and painting from his father Jose Ruiz Blasco, a talented fine art professor in the city. As the painter's artistic mentor, he influenced Picasso's understanding of art as both a profession and a personal challenge, explains the Artistic Director of the Museo Picasso Malaga, Jose Lebrero Stals. The student's talent surpassed that of the teacher from an early age, and young Pablo often put the final touches on his father's paintings of birds and other natural scenes.
+
+​	Soon after that first painting , the Picasso family moved away Malaga when Pablo was 10. He spent his formative years in Barcelona and lived the rest of his life in France, yet he never forgot his birthplace. Although the artist was uprootd from his city of birth at a young age, now  and again we can make out certain formal solutions and symbolic resources in his  work that link it to the cultural and natural landscape of his  native land: from subjects typical of Catholic rhetoric to the presence of water and the Mediteranean Sea, says Stals.
+
+​	Imagery from the bullfights he watched with his father appeared in artwork, like Guernica, throughout Picasso's entire career. Spanish poet Rafael Alberti writes that for Picasso, the bull becomes the symbol of the bravery of the Spanish pople , of their creative power. Andalusia is the home of bullfighting , with more than seventy bullrings in the region.
+
+​	Spain's Costa del Sol always offered tourists an affordable beachside retreat near one of the oldest cities in the world. During its 2800-year history , Malaga was occupied by the Phoenicians , Romans, and the Arabs, all of whom left behind their own distinctive architecture and other influences.
+
+​	The city fully embraced its most famous export when members of the Picasso family donated almost three hundred artworks in 2003. The city has
+
+experienced a huge transformation since the opening of Picasso museum in Malaga. This was the starting point of the cultural and artistic evolution of the city. All the streets around the museum were renewed and the list of museums has grown to 36, says spokesperson Carmen Gualada Romero from the tourism board.
+
+​	Malaga spent millions of euros to reinvent itself as a cultural hub. In 2015, the Parisian contemporary art museum Centre Pompidou opened its only foray outside France, housed in  a playful glass cube that catches the sun near the revitalized port. A collection of Russian art opened in a former tobacco factory the same year, which was also the first venture outside of Russia for the StateRussian Museum. Then there's the Malaga Museum in Aduana Palace, a satelite of Madrid's Thyssen-Bornemisza Museum, the Center for Contemporary Art, and many galleries cropping up in the city's less-than-originally neamed Soho district.
+
+​	More than a century after the Picassos left, the city built an identity around its most famous resident. Although Pablo never returned to Malaga after childhood, he left an enduring mark on the city, and indeed the trajectory of art itself.
+
