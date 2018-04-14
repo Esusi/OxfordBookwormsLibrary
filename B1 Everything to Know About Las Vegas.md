@@ -1042,3 +1042,41 @@ experienced a huge transformation since the opening of Picasso museum in Malaga.
 
 ​	More than a century after the Picassos left, the city built an identity around its most famous resident. Although Pablo never returned to Malaga after childhood, he left an enduring mark on the city, and indeed the trajectory of art itself.
 
+# Turtle With Green Mohawk Faces Extinction
+
+> On a list of endangered reptiles, the Mary turtle turned heads, but it's only one of many facing extinction.
+
+​	Unbeknownst to the Mary river turtle, the Austraian species has been labelled a punk.
+
+​	Perhaps it's the little green mohawk, made of algae strands that grow on its body, or the novel fact that it breathes through its genitals —but the Mary river turtle became a sensation after news came out that it was already on the road to extinction.
+
+​	This week, conservation group EDGE—Evolutionarily Distinct and Globally Endangered— run by the Zoological Society of London updated their endangered species list. The organization ranks animals that are both at risk of extinction and evolutionarily distinct from other similar species.
+
+​	The rankings are backed by a study published in the journal PLOS One , which outlines the criteria scientists use to evaluate each species.
+
+​	EDGE is updated on an anual basis, but this year is special , says study author Rikki Gumbs, because it's the first time reptiles have been included.
+
+​	The Mary river turtle waddled its way on the list for a number of reasons: it's the only member of its genius, and according to EGDE's website, it became evolutionarily distinct 40 million years ago. Forty million years of Earth's changes, however, wasn't enough to prepare them for 100 years of human intervention.
+
+​	Their habitat—Mary River in Queensland , Austrialia—has been disrupted from dam construction, and the species was widely bought and sold in the pet trade.
+
+​	Today it's protected by the Australian government, and conservation groups are working to make sure its habitat is preserved.
+
+## OTHERS LIKE IT
+
+​	It's important for people to not just focus on this one Mary river turtle, says Gumbs. Many more are threatened.
+
+​	More than 100 species were added to EDGE's first reptile endangered list, and Gumbs estimates they represent only a fraction of  those at risk of extinction. Reptiles in general, he adds, have been underserved by conservation efforts. He thinks this is in part attributed to their sometimes less-than-cuddly appearance.
+
+​	They freak a lot of people out, Gumb say. We can look at mammals and see things that remind us of ourselves, but the Mary river turtle is so unlike us.
+
+​	His hunch is backed up by past studies saying cuter animals are treated favorably by conservationists and  that cuteness is a quantifiable cocktail of characteristics like big eyes and round faces.
+
+​	In a blog post for EDGE, Gumb outlined his top 10 favorite reptiles recently added to the endangered list. The Mary river turtle isn't the only odd reptile on the list, nor is it even the only one that breathes through its butt.
+
+​	The vulnerable pig-nose turtle has a little snout, two large nostrils, and wide flippers. It faces habitat loss in Australia, and in some countries it's eaten for its meat.
+
+​	Snakes, like the rose gold Round Island keel-scaled boa and shimmery Madagascar blindsnake, are also in danger of extinction.
+
+​	See a full list of EDGE's reptiles here.
+
