@@ -1080,3 +1080,36 @@ experienced a huge transformation since the opening of Picasso museum in Malaga.
 
 ​	See a full list of EDGE's reptiles here.
 
+# How This New Probe Will Hunt for Alien Earths
+
+> Once in orbit, the Transiting Exoplanet Survery satellite will find whole new worlds at the right distances for us  to spot signs of life.
+
+​	On Monday, NASA's next plant hunter is slated to take to the skies aboard a SpaceX Falcon 9 rocket launched from Cape Canaveral, Floriada.
+
+​	Barring malfunctions or delays, the Transiting Exoplanet Survery Satellite ,or TESS, weill settle into orbit and begin searching for planets around the nearest, brightest stars, building up our catalog of alien worlds that are close enough to be scrutinized for signs of life.
+
+​	A few months after TESS launches , we will be able to point out the first ones of these familiar starts, which host planets that could be like ours, says Cornell University's Lisa Kaltenegger.
+
+​	If a planet-hunting spacecraft sounds familiar, it's likely because of the rich deversity of worlds found so far by NASA's venerable Kepler space probe. Since 2009, Kepler has been harvesting planets from the cosmos, spying the footprints of these alien worlds in distance starlight. Kepler alone can claim more than 2600 discoveries, some of which could be rocky planets quite similar to Earth.
+
+​	TESS won't be doing exactly the same thing as Kepler, says mission scientist Elisa Quintana of NASA's Goddard Space Flight Center. Here's how the two missions stack up, and how TESS will help us probe the persasive question of whether we're alone in the universe.
+
+## Why do we need more than one planet-hunting eye in the sky?
+
+​	After nine years in orbit, the Kepler spacecraft is runing extremely low on fuel, and it will most likely cease operating within the next couple of months. It's an inevitability that scientists have been preparing for, but that doesn't make the spacecraft's end any easier. No one is looking forward to losing what has been the most successful planet-finder in history-a mission that revealed there are more planets in the sky than stars.
+
+​	Even if Kepler did have a longer life span, more exoplanets are always better. What's more , TESS is looking for particular types of planet, rather than taking a broader census of what's out there.
+
+​	I'm most excited about the large number of planets that are between the size of Earth and Neptune that TESS will find, Quintana says. These are the most abundant types of planets, and we know very little about them , because there are none in our solar system.
+
+## So How will TESS find planets?
+
+​	Like Kepler, TESS will be searching for planets that cross the faces of their stars from our perspective, causing their star's light to dim briefly. Those tell-tale dips in brightness not only reveal the presence of a planet, but also how wide that world is and how long it takes to orbit its star.
+
+​	Unlike Kelper,which stared at a single patch of starry sky for most of its primary mission, TESS will be looking all over. As it zooms around Earth, the spacecreft will be using four cameras to gaze at a whopping 85 percent of the sky, focusing on particular stars for 27 days at most. Its first year of observations will focus on the southern sky, and its next year will map the north.
+
+​	Before we knew what a huge number of fascinating, diverse planets were out there, the approach of scanning the sky and only looking at each star for a short time was too risky, Kaltenegger says. Now that Kepler showed us how many planets are out there, and also how many planets that could be like our own are out there, scanning the sky makes sense.
+
+## Why do we care about these types of planets?
+
+​	The search for life beyond Earth is necessarily constrained by what we know. Life as we don't know it could be anywhere, and it doesn't care that we haven't deigned to imagine it yet. To help focus the hunt, astronomers are starting by looking for something familiar. And we know that at least once, life evolved on a warm , rocky planet orbiting a relatively stable star.
