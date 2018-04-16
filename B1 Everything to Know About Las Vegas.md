@@ -1113,3 +1113,32 @@ experienced a huge transformation since the opening of Picasso museum in Malaga.
 ## Why do we care about these types of planets?
 
 ​	The search for life beyond Earth is necessarily constrained by what we know. Life as we don't know it could be anywhere, and it doesn't care that we haven't deigned to imagine it yet. To help focus the hunt, astronomers are starting by looking for something familiar. And we know that at least once, life evolved on a warm , rocky planet orbiting a relatively stable star.
+
+# Where Did Picasso's Genius Come From?
+
+> Pablo Picasso's talent was  fierce, dark, and revolutionary, but did it reach teh level of true genius? It's camplicated, a new book says.
+
+​	On April 24, Antonio Banderas will strut his stuff as Pablo Picasso in the lastest installment of the National Geographic Channel's Genius series. As an appetizer, this week's Book Talk features a new book, Picasso and Painting That Shocked the World, which tells the story of how an impoverished Spanish painter from Barcelona exploded onto the Parisian cultural scene and changed the course of modern art with a single painting.
+
+​	When National Geographic caught up with the author, Miles Unger, at his home near Boston, he explained Picasso's complicated relationship to money and fame; why his treatment of women was so awful; and how his masterpiece Les Demoiselles 'd Avignon took art in a revolutionary new direction and would become the cornerstone of the Museum of Modern Art in New York.
+
+	## The term genius has become debased through overuse today. But Picasso seems to genuinely merit it . What's your view?
+
+​	I'm a little uncomfortable about the term genius because it does seem to be denuded of content. He was incredibly innovative and had enormous artistic courage. That's one of his qualities. Fewer famous people have painted as many horrible paintings as Picasso. That was intentional . He was not afraid of ugliness; in fact he was much more afraid of prettiness. He feared most of all to adhere to formula, to do something safe. He said that art had to be dangerous , to be offensive, to push boundaires, and he an enormous drive to do that. If you can call him a genius—and he certainly transformed the course of art, so in that sense it's valid—what it consists of is his enormous courage and defiance of rules.
+
+​	One of the keys to his particular form of genius was that he knew the weaknesses of the enemy because he had been one of them.He'd been brought up in a very academic tradition by his father and givern a classical training, going through all the stages, from etching to classical sculptures. It's not that he discarded these tools, but he used them for very different purposes. You see his gift for draftsmanship and knowledge of the tools of art, but he took them apart and put them together in unexpected combinations. What distinguished him from other iconoclasts , though, was that he didn't simply tear down; he tore down in orderto build up again.
+
+## We have to address Picasso's chauvinism, expecially now, in the age of MeToo. How should we view his attiudes and behavior toward women?
+
+​	He came from a patriarchal family and part of the world in which women were expected to stay at home and take care of their husbands and children. Your social life revoled around men. Men were your intellectual and drinking companions . For sex, you went to the whorehouse, and occasionally came hometo your wife.So, as a lover and husband, I think he was horrible. He builded and demineered the women in his life. He famously said that women were either goddesses or doormats. Usually, they went from being goddesses to doormats.
+
+​	Some people, when confronted with an artist like Picasso, say he was a great artist but a terrible human being, but that the two have nothing to do with each other. I think that's a mistake, particularly in the case of Picasso, because his attitudes toward women were so much a part of his art. If you look at Les Demoiselles D'Avignon, the fury and conflicted feelings about women all come through. That doesn't mean we should forgive his treatment of real women. But one should also recognize that art can often come from a very dark and furious place, just as Matisse's art came from a joyful, sensual, much-less-conflicted place.
+
+## One of Picasso's contemporaries, Andre Salmon, said Les Demoiselles D'Avignon was The incandescent crater from which emerged the fire of present art. Talk us through the creation of  this iconic work.
+
+​	In 1906,Matisse paints onheur de Vivre, or Joy of Life, which was a smash success and propelled Matisse to the forefront . So Picasso starts thinking of a masterpiece to rival Matisse's  great work, but in his own, unique style.In 1907, he begins to create this counter-masterpiece, based on the image of a whorehouse, which is larger than life and full of demonic figures.If Matisse's painting was the Joy of Life, Picasso's might be call The Horror of Sex.
+
+​	He gets his patrons , the Steins, to buy another studio in his apartment in the Bateau Lavoir and sets down to recreate art from the ground up. Picasso is famous for the repidity with which he painted, but he labored over this work for months, filling notebook on primitive sources like Iberian art, which he was very influenced by. Later, he visits the ethnograohic museum in Paris, where he sees African and New Hebrides sculptures, and Native American workds, and is blown away by this completely different approach to form , which is much more conceptual. It is not based on trying to recreate the world that we see, but a symbolic, almost shamanistic approach to the human form.
+
+​	What he creates after eight agonizing months of struggle is a completely new pictoral form . If you stand in front of Les Demoiselles 'd Avignon, the impact is incredible it's enormously in your face. He pressed everything up to the front of the canvas. There is no empty space, just jagged forms, these horrifying creatures who stare right back at you, the viewer. It creates a completely different way of relating to a  painting than the traditional notion of a painting as a window on the world. It's as if the window had been turned inside out, pressing outward into outer space.
+
