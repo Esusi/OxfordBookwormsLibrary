@@ -1142,3 +1142,36 @@ experienced a huge transformation since the opening of Picasso museum in Malaga.
 
 ​	What he creates after eight agonizing months of struggle is a completely new pictoral form . If you stand in front of Les Demoiselles 'd Avignon, the impact is incredible it's enormously in your face. He pressed everything up to the front of the canvas. There is no empty space, just jagged forms, these horrifying creatures who stare right back at you, the viewer. It creates a completely different way of relating to a  painting than the traditional notion of a painting as a window on the world. It's as if the window had been turned inside out, pressing outward into outer space.
 
+# 10  Undersung National Parks
+
+> America's most popular park deserve all the love they get, but here are ten other fascinating sites well worth the trip.
+
+​	America's National Park System is composed of more than 450 natural, historical , and cultural areas spread across the United States and its far-flung territories. Though Yellowstone deserves all the attention it gets, here are ten lesser-known park properties that are calling out for a visit.
+
+## SANDY SHELTER
+
+​	A black lava flat on the west coast of Hawaii's Big Island house the beachfront Pu'uhonua o Honaunau National Historical Park,an ancient stone-walled safe place endowed with the power of past Hawaiian chiefs. Be sure to greet the scowling wooden kii statues before entering the site, which also encompasses a former royal compound with thatched temples fish ponds, and tracks used for he's holua , the ancient extreme sport of lava sledding.
+
+## THE RIGHT PATH 
+
+​	More than a home base for migratory birds, the marshy expanse of the Blackwater National Wildlife Refuge on Maryland's Eastern Shore provided food and cover to 19th-century slaves as they fled north. Today, pats of the refuge, along with a patchwork of neighboring federal and state lands, make up the abolitionist who escaped bondage on a nearby plantation and went on to help hundreds of freedom.
+
+## REMOTE RETREAT
+
+​	Thanks to unpredicatable winds and coordinates smack in the middle  of the roadless Alaska Peninsula, the Aniakchak National Monument and Preserve is one of America's least-visited national parks -134 people stopped by in 2013, a boom compared to the 19 recorded visitors the previous year. Weather willng, the six-mile-wide, 2500-foot-deep caldera is reachable by power boat or charter seaplane ,but the trek is work it for the tourist-free hiking, rafting , and volcanic vistas.
+
+## MEMORIAL TRAIL MIX
+
+​	Washington ,DC is crammed with memorials: Marble statues of historical VIPs rule over reflecting pools, dominate park squares, and rise up on rearing horses from traffic circles. But America's 26th president pleasantly  proves that some men really are islands-foliage-filled Theodore Roosevelt Island is  a small sancturary in the Potomac River that Frederick Law Olmsted Jr.trans formed from overgrown farmland into a fitting national Central Park, transformed from overgrown farmland into a fitting national memorial to  a leader who was known to drag goverment officials on nature hikes.
+
+## ASTRONAUT PLAYGROUND
+
+​	With bizarre features like cavities in the earth left by lava-incinerated trees, central Idaho's  Craters of the Moon National Monument and Preserve is indeed a weird and scenic landscape peculiar to itself, as President Calvin Coolidge christened it in 1924. Forty-five years later, the vast lava field—created by several periods of eruptions , the most recent a mere 2000 years ago— hosted the crew of Apollo 14 for a primer on volcanic geology to prep for their trip to the ultimate otherworldly landscape: the moon.
+
+## HOME OF THE BRAVE
+
+​	Terrorists on United Airlines Flight 93 on September, 11,2001 , had planed to fly the jetliner into the US . Capitol or the White House,but the 33 passengers and seven crew on board fought back, forcing them to abort their mission and fly the plane into a field in Pennsylvania —the only flight hijacked that fateful day that failed to reach its target. The Flight 93 National Memorial commemorates the Shanksville crash site and honores the courage of those who gave their lives.
+
+## HOT SPOT
+
+​	A cluster of thermal spring in Arkansas's Ouachita Mountains, Hot Springs National Park was recognized by Congress 40 years Yellowstone , making it the oldest federal reserve in the country—and today, the only truly urban naitonal park. Soak up the sauna culture at teh turn-of—the century Fordyce Bathhouse, the first on Bathhouse Row to be restored, which chronicles the go-go years of the spa movement in the US. when treatments like mercury applications and electrotherapy made a splash.
