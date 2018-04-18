@@ -1175,3 +1175,34 @@ experienced a huge transformation since the opening of Picasso museum in Malaga.
 ## HOT SPOT
 
 ​	A cluster of thermal spring in Arkansas's Ouachita Mountains, Hot Springs National Park was recognized by Congress 40 years Yellowstone , making it the oldest federal reserve in the country—and today, the only truly urban naitonal park. Soak up the sauna culture at teh turn-of—the century Fordyce Bathhouse, the first on Bathhouse Row to be restored, which chronicles the go-go years of the spa movement in the US. when treatments like mercury applications and electrotherapy made a splash.
+
+# First Bat Removed From US Endangered Species List
+
+> Just thirty years ago, only a thousand of the bats remainded—but after decades of work, the species is thriving.
+
+​	In a conservation first made possible by volunteers, scientists, and a splash of tequila, the long—nosed bat is no longer endangered—the first US bat species to officially recover from the imminedt threat of extinction.
+
+​	The science clearly shows threats to the bat have been eliminated or reduced to the point that the bat has recovered, said Amy Lueders, the southwest regional director for the US Fish and Wildlife Service , in a statement. The Service is proud of our strong, decades-long partnerships with very diverse stakeholders on behalf of the lesser long-nosed bat. Without partnerships and collaborations such as these, successful recovery would not be possible.
+
+​	The lesser long-nosed bat is one of three bat species in the United States that feeds on nectar. One of the Species's major subpopulations migrates between the United States and Mexico. They mate and wait out the winter in southern and central Mexico, roosting together by the thousands to keep warm. In the spring, they migrate north to northern Mexico and southern Arizona, giving birth in many-female maternity caves.
+
+​	The bats colonize a string of caves and abandoned mines along an agave-rich nectar trail from southern Mexico to Arizona. For decades, these roosts—and the bats within them —were under serious threat.
+
+​	According to the US Fish and Wildlife Service , druy and human traffickers operating on the US—Mexico border regularly made use of the caves,disturbing the bats and sometimes killing them outright. Recreational cavers also spooked the bats, and vandals harassed them.
+
+​	What's more , Mexico'efforts to control vampire bats—which can transmit rabies —had too often spilled over into killing other bat species. And the bats' favorite foods, the pollen and nectar from agave plants and cacti, were getting harder and harder to find.
+
+​	These various indignities took their toll. When the species was declared endangered in 1988, the US Fish and Wildlife Service estimated that the bats were down to fewer than a thousand individuals, strewn across only 14 known roots in the US and Mexico.
+
+## BINATINAL BATS
+
+​	For the last three decades , however, the US and Mexico have cooperated to bring the lesser long—nosed bat back from the brink . Now , the US Fish and Wildlife Service estimates that there are some 20000 bats living in at least 75 roosts between the two countries.
+
+​	This is a great example of binational conservation collaboration—of people working on both sides of the border to not just monitor but also take actions to protect this species , says National Geographic explorer Winifred Frick, the chief scientist for Bat Convervation International.
+
+​	Government agencies in the US and Mexico worked to protect agaves and other food sources, such as saguaros. Conservation groups built bat gates that prevented humans from entering caves and abandoned mines that the bats had made their home. And volunteers across southern Arizona regularly called in whenever the bats fed on their hummingdird feeders , giving scientists regular updates on the animals' range.
+
+​	In 2007, the US Fish and Wildlife Service recommended ralabeling the lesser long-nosed bat from endangered to threatened. In 2008, the International Union for the Convervation of Nature made a similar move, upgrading the species from Vulnerable to Near Threatened status. And by 2015, Mexico removed the bat from its endangered species list.
+
+​	In January 2017, the US first announced its intent to follow suit, a decision finalized on April 17, Bat Appreciation Day. Officials have drafted a plan to monitor the bat species, to the sure that its recovery sticks—an effort buoged by Mexico's tequila producers.
+
