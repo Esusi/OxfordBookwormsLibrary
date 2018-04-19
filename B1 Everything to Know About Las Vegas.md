@@ -1206,3 +1206,43 @@ experienced a huge transformation since the opening of Picasso museum in Malaga.
 
 ​	In January 2017, the US first announced its intent to follow suit, a decision finalized on April 17, Bat Appreciation Day. Officials have drafted a plan to monitor the bat species, to the sure that its recovery sticks—an effort buoged by Mexico's tequila producers.
 
+# 48 Environmental Victories Since the First Earth Day
+
+> As Earth Day turns 46 , we take a look back at the biggest milestones in environmental protection.
+
+​	The first Earth Day, on April 22,1970, was a milestone event for the planet. An estimated 20 million people took to the streets across the US to raise awareness about the impacts of human activites on the environmental.
+
+​	Since then, the annual tradition has grown to involve billions of people around the world. This year, Earth Day turns 48. To mark this anniversary and to show how much has changed since 1970, we assembled 48 of the most significant accomplishments of the enviromental movement since the first Earth Day.
+
+## 1970 Environmental Magna Carta
+
+​	The National Environmental Policy Act of 1969 went into effect the following year, becoming a landmark law that requires every major decision of the federal government to be evaluated for its impact on the evironmental. This began the era of requiring environmental impact statements for building dams, roads, and other major projects.It has been called the environmental Magna Carta for its wide impact and for precedent it set in government , both in the US and abroad.
+
+## 1972 Notorious Toxic Chemical Banned
+
+​	DDT is a colorless, nearly odorless insecticede that was widley used in the post-war era to increase farm productivity and fight mosquitoes.Although a Nobel Prize was awarded for its discovery, scientists eventually realized that DDT was causing problems in the environment, including thinning the shells of birds's eggs. Rachel Carson popularized this research in the 1962 book Silent Spring .After DDT was banned, bald eagles, peregrine falcons and many other endangerd bird species returned from the brink of extinction.
+
+## 1972 Regulating Pesticides
+
+​	In 1972, the Federal Environmental Pesticde Control Act was passed, updating a 1910 law that had required truth in advertising for pesticdes. The new law charged regulators with considering the impacts of pestcides on human and environmental Protection Agency was given more teeth to police the market and restrict and outlaw toxic chemicals.
+
+## 1972 Cleaning Up Rivers
+
+​	In 1972, the Clean Water Act passed, with the goal of making all rivers in the country swimmable and fishable again.In just a few years, the  resulting efforts to restrict pollution led to rivers that no longer burst into flames.
+
+## 1972 Marine Sanctuaries Created
+
+​	Although goverments had been protecting land as wilderness areas for more than a century , the idea took longer to catch on for the ocean. In  1972, the Marine Protection, Research and Sanctuaries Act started the country's system of marine sanctuaries. These special places now protect preceless biological, historical, and cultural treasures, from the reefs of the Florida Keys to shipwrecks in the Great Lakes. The sanctuaries also become a boon to the tourism industry.
+
+## 1972 Saving Whales
+
+​	Whales, dolphins, seals and manatees received strict protection from hunting and harassment in US waters with the eMarine Mammal Protection Act. As a result , their numbers began to slowly in the ensuing decades.A robust eco-tourism bussiness followed in their wake.
+
+## 1973 Saving Species
+
+​	The landmark Endangerd Species Act resulted in substantial protections for listed plants and animals, including bans on harvesting and a framework that protects critical habitat. In some cases, captive breeding and reintroduction programs began in an effort to reverse decades of population decines caused by human activites. Species that showd significant recovery as a result range from the toothy American crocodile to the plucky Delmarva fox squirrel.
+
+## 1975 Global Agreement on Endangered Species
+
+​	The Convention on Internatinal Trade in Endangered Species was drafted for signatures in 1973 and went into effect in 1975. Signatory countries agree to ban or restrict trade in endangered  species and their body parts. Although black markets arose for such products as tiger skin and elephant tusks, countries have also  worked together to combat such trafficking.
+
