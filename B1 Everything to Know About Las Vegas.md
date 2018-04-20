@@ -1246,3 +1246,45 @@ experienced a huge transformation since the opening of Picasso museum in Malaga.
 
 ​	The Convention on Internatinal Trade in Endangered Species was drafted for signatures in 1973 and went into effect in 1975. Signatory countries agree to ban or restrict trade in endangered  species and their body parts. Although black markets arose for such products as tiger skin and elephant tusks, countries have also  worked together to combat such trafficking.
 
+# How to Create a Music Score for Our Planet
+
+> Following a premiere on Earth Day, this imersive composition will take off with an orchestral tour.
+
+​	What instrument characterizes a herd of running bison? What sound would  you use  to illustrate a feeding hummingbird?
+
+​	On April 22, Net Geo WILD will air Symphony for Our World, a one-hour orchestral celebration of our little blue planet. The immersive multimedia piece pairs natural history footage from National Geogaphic's archives with the symphonic stylings of Bleeding Finders Music in collaboration with X Ambassadors, the American rock band famous for the songs Unsteady and Renegades.
+
+​	In addition to the televised Earth Day event, Symphony will kick off the tour of a 90-minute live orchestral performance. The first showing will be held at San Francisco's Louise M Davies Symphony Hall on April 22, and more than 50 other performance across Mexico, the US and Canada will follow .Photos from the National Geographic Photo Ark will also be featured during this event.
+
+## HOW TO SCORE NATURE
+
+​	The symphony covers five movements , starting with seas progressing through shore, land, mountains, and sky biomes. Austin Fray scored the overture, in addition to the sea, land and sky movements, while Andrew Christie took on the movements for shore and mountains.
+
+​	Anytime it's huge and epic, me and Andrew both love that, Fray , who has worked on films like Star Trek Beyond and The Hobbit. I try to put a lot of excellence into everything I write.
+
+​	The composition starts off with sweeping shots of the ocean backed by swelling woodwind and string melodies. The crashing of waves emerge as the rest of the symphony joins in, and the setting eventually dips under the surface to capture marine life, from plankton , octopuses, and coral to sea turtles and countless species of fish.
+
+​	The melody alternates within each movement depending on the footage.In Shore, the tone goes eerie with creeping prey and tense with predator attacks. In Land, jumping beats set the soundtrack for playful baby animals and epic swells narrate intense animal battles. The sounds of nature hover throughout the symphony, whether in the form of croaking frogs or howling wolves.
+
+​	Fray says Seas was his favorite because of his background . His family lived on a sailboat for two years when he was growing up.
+
+​	It took me back home,took me back to my family, Fray says. It was just something that I really connected with.
+
+​	For this movement, Fray dissected the sea ecosystem to see what set it apart sonically from the other environments. He heard a hardness in the coral reefs and molusks that he translated into percussive marimaba and xylophone sounds. For later movements, his mind went to piccolos for hummingbirds and  percussion for animal herds. Fray's eclectic musical tastes give his sound a simultaneously detailed and vast tone.
+
+​	In contrast , Christie's movements are more layered and weighty. The LA-based Australian composer, whose resume includes Rush and Girl Rising, interpreted the footage more abstractly.
+
+​	It's hard to intellectualize it. It was more just, for me, watching the picture and intuitively reaching to it, Christie says. The Australian aesthetic is open wide space, it comes out of my music quite a bit.
+
+​	In collaboration with the Bleeding Fingers composers, the sounds of X Ambassadors make an appearance in the score. Singer Sam Nelson Harris' wailing vocals accompany piano riffs and drum elements, offering a lyric-less accompaniment to the classical music. Fray says the vocals brought in a raw human element that couldn't be made with instruments. The lack of lyrics freed the composers to experiment with their creative liberties.
+
+​	There's no dialogue to hide under, Christie says. It's educational in a different way narration.
+
+## INSPIRING CHANGE
+
+​	Tuiumphant melodies and musical bursts make the composition downright inspiring and Fray and Christie hope that Symphony for Our World will move people to care more about our world.
+
+​	If people aren't aware or not making  that emotional connection with different parts of the planet , it's harder to not care about environmental conservation, Fray says. Any program like this  has a lot of wieght and importance as things get harder and harder on the  environment. We need to keep making these documentaries to keep the conversation going.
+
+## THE MOST COMPELLING PHOTOS OF EARTH
+
