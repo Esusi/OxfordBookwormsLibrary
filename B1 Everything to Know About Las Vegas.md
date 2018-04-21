@@ -1288,3 +1288,39 @@ experienced a huge transformation since the opening of Picasso museum in Malaga.
 
 ## THE MOST COMPELLING PHOTOS OF EARTH
 
+# Here Are Some Alternatives to Reef-Damagin Sunscreen
+
+> Harmful chemicals from suncreen can leach into the ocean damage coral. Here are some sun-blocking alternatives.
+
+​	From a distance, Australia's Great Barrier Reef is an underwater gem. The reef's colorful corals serve as a submerged garden for a vibrant marine ecosystem that draws visitors to the area from all over the world. Snorkelers and scuba-divers alike can swim alongside some of the thousands of species of fish that make the reef their home. Lucky travelers might even catch a glimpse of the ecosytem's dugongs or sea turtles.
+
+​	But the ecosystem is fragile. Rising temperatures and harmful chemicals leaching into the water are bleaching the once-thriving reef. Human visitors might even be carrying some of these toxins on their skin.
+
+​	When you siwm sunscreen on, chemicals like oxybenzone can seep into the water, where they're absorbed by corals . These substance can disrupt coral's reproduction and growth cycles, ultimately leading to bleaching. Even if you don't go swimming after applying sunscreen, it can still go down drains when you shower. Aerosol can often spray large amounts of sunscreen onto sand, where it gets washed into our oceans.
+
+​	Human might be responsible for this contamination, but we're also capable of helping heal these fragile underwater ecosystems. 
+
+## AT-RISK REEFS
+
+​	Coral reefs all over the world are threatened by pollution, and many of the most popular destincation spots have the most at-risk coral.In addiiton to the Great Barrier Reef, heavy human traffic in the bays of Hawaii, the US Virgin Islands, and Israel are especially vulnerable.
+
+​	Oahu'a Hanauma Bay, a state park that was formed within a volcanic cone, is one such example . The area's turquoise surf and vibrant coral gardens draw nearly 1 million tourists each year, making the spot one of Hawaii's best places for snorkeling. The bay is home to 450 species of fish and has the largest mass of reef anywhere in Oaha.
+
+​	Hurricane Hole at the Virgin Islands Coral Reef National Monument, located off Saint John, is another popular spot.The submersed monument protects 22 miles of marine habitat, including 30 out of the 45 known coral species. Here, visitors can snorkel in the mangroves with coral ,fish, and marine invertebrates.
+
+​	Israel's popular Eilate Coral Beach Nature Reserve is another example. The Gulf of Eilat houses the country's only coral reefs, which are a major draw for tourists.Bridges built over top of the reefs allow visitors to get a peek at the coral and colorful fish it houses. Scuba divers can also dive along the front and slope of the reef for a more intimate view.
+
+​	If we lose reefs, we will have lost a vital ecostytem. We could also hurt our global economy-coral reefs are a major torist attraction and source of income for these economy— coral reefs are a major tourist attraction and source of income for these popular vacation spots
+
+## STEPS FOR REEF SAFETY
+
+​	Hawaii has taken steps to ban sunscreen that's not safe for coral, and lawmakers will vote on it at the end of the month. The bill could go into effect by July 2019.
+
+​	But governments don't want people to stop using sunscreen all together , due to risks of burns and skin cancer. The good news is there are alternatives that are safer—for people and for coral —that don't include oxybenzone.
+
+​	Haereticus Environmental Lab publishes a list each year of what suncreens are safe for the environment, and organizations like the Environmental Working Group also publish a safe suncreen guide. Mineral-based sunblocks that use titanium dioxide and zinc oxide are safer than the oxybenzone—containing alternatives. Sunscreens with non-nano size particles are safer because they can't be ingested by corals. Some sunscreens have a combination of nano-size and non-nano size particles, and the Consumer Products Inventory has a database that can tell you if yor sunscreen contains nanoparticles.
+
+​	Some tour companies in popular destinations like Mexico make it mandatory for visitors to wear only biodegradable sunscreen . Select Hawaiian resorts give out free reef-safe sunscreen samples that don't contain harmful chemicals. Many of these resorts will let patrons know of these restrictions in advance or list it on their websites.
+
+​	Dermatologists say clothing is just as effective as sunscreen at protecting from the sun, with the only downside being it doesn't completely cover the body.Many compaines offer sun-protecting clothing , such as  long—sleeve rash guards or full-body swimsuits. When all else fails, put on a t-shirt.
+
