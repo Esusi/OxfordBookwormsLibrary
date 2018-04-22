@@ -1324,3 +1324,43 @@ experienced a huge transformation since the opening of Picasso museum in Malaga.
 
 ​	Dermatologists say clothing is just as effective as sunscreen at protecting from the sun, with the only downside being it doesn't completely cover the body.Many compaines offer sun-protecting clothing , such as  long—sleeve rash guards or full-body swimsuits. When all else fails, put on a t-shirt.
 
+# How You Can Participate in Earth Day
+
+> From grassroots to global, these initiatives aim to counter our most pressing environmental issues.
+
+​	Need some motivation to get into the Earth Day spirit? Try turning on Nat Geo WILD's Spotify playlist.
+
+​	If that still hasn't done it for you, try watching scenes from National Geographic's show One Stragnge Rock. It's told through the perspective of the only people who have gotten an outside view of Earth, astronauts, and each episode unpacks an Earthly wonder.
+
+​	Clearly we here at National Geographic embrace Earth Day, and we're celebrating the day in a big way. But there are a lot of ways you can participate beyond our yellow border.
+
+​	Since the first Earth Day in 1970, the day has become an international focus for action. Environmental group Earth Day Network estimates that as many as one billion people around the world celebrate Earth Day in some way. Unsure how you can get in on the action? Below are just some of the few ways you can participate.
+
+## Ditch Your Plastic
+
+​	This year, Earth Day Network is putting the spotlight on plastic pollution. Plastic is pervasive , and it's more than a water bottle or two thrown on the sidewalk. The garbage patch the size of Texas meandering through the Pacific?It's made of 1.8 million tons of plastic and about 94 percent of that is micro plastic. Those bit-sized pieces of plastic are found throughout the ocean, and can even end up on your plate.
+
+​	The Earth Day Network has  created a toolkit that helps you calculate your plastic use and create a plan to cut down on consumption.
+
+​	You can start with easy steps like ditching your straw.
+
+## Plant a Tree
+
+​	Trees play an important role in balancing our ecosystem by absorbing carbon. They can even help reduce the impacts of climate change by pulling greenhouse gases from the atmosphere.
+
+​	The organization One Tree Planted organizes meet-ups for people to plant trees together , but if you don't see region represented, you can easily sign up to stage your own event . Earth Day Network also organizes tree-planting groups in urban areas and schools or allows you to donate.
+
+## Go Local
+
+​	Local communities are at the front lines of keeping their towns green. Online platforms like Eventbrite and Facebook can help you find Earth Day events in your own town. Many cities hold gatherings like festivals, marches , talks ,or concerts to help stoke that Earth Day server.
+
+​	And , of course, you can always let your representatives in Congress congress know where your priorities are by writing to them.
+
+## Celebrate Through Song
+
+​	How do you write a classical music score for the Earth? These composers tackled the challenge for National Geographic's Symphony for our World event.
+
+​	Symphony for Our World pairs stunning natural images with a symphonic composition by Bleeding Fingers Music . On Earth Day the Net Geo WILD channel will air an hour-long special at 7 pm EST 6pm CST Images will come from National Geographic an Joel Sartore's Photo Ark, a project to photographically document key animal species.
+
+​	After April 22 the symphony will then go on tour in the US. Canada,Australia, and Mexico, A full schedule and tickets can be found here.
+
