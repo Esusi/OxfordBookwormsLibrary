@@ -1364,3 +1364,27 @@ experienced a huge transformation since the opening of Picasso museum in Malaga.
 
 ​	After April 22 the symphony will then go on tour in the US. Canada,Australia, and Mexico, A full schedule and tickets can be found here.
 
+# They Journeyed Into One of the Last Great Wildernesses. Here's How It Changed Them.
+
+> A multinational team  of conservations spent a grueling , transcendent four months on a 1500-mile expedition to save the Okavango Delta—but the mission's just beginning
+
+​	In northwestern Botswana, the arid ground of the Kalahari Desert gives way beneath the thousand green fingers — an unfurling hand of permanent marshes and seasonal floodplains, knuckled with islands, whorled by shifting channels and streams- known as the Okavango Delata.
+
+​	The inland terminus of  a massive wetland that traces its sources north through the Namibian panhandle to rivers in the Angolan highlands, it's Africa's largest intact watershed. It's a UNESCO World Heritage Site, giving shelter to thousands of unique species of flora and fauna and sustenance to a million people , including indigenous  groups whose communites line the rivers and dot the delta. When winter floodwaters reach Botswana, the 8500-square-mile plain is visible from space.
+
+​	For some, it's become the center of the world.
+
+​	You feel like you've been  looking for something your whole life, says Steve Boyes, a conservation biologist and National Geographic Fellow who has made the delta his life's work. And then you find it.
+
+​	The first time he saw the Okavango Delta, at 31 years old in 2000, the South African quit his job and told his university supervisor, I'll try to finish my master's degree from Botswana, but i'm going . Bye.
+
+​	It was the start of a calling that would eventually lead Boyes—and a team of equally zealous conservations—to undertake an expedition that, by their own estimation, was slightly insane: to survery the entire system, from beginning to end, in a whole—hearted  attempt to learn anything and everything they could use to protect it.
+
+## SOURCE TO SAND
+
+​	Over a decade of fieldwork(during which he did, in fact, finish his master's , as well as a PHD) Boyes came to realize the only way to preserve the Okavango is to preserve all of it, headwaters to endpoint.
+
+​	A patchwork of game resrves and other managed areas protect the system's Botswanan swath. But the delta's richness obscures its dependence on water management in Namibia, where agricultural irrigation schemes divert and pollute the tributary Cubango River—and in Angola,  where a brutal 27-year-civil war and its lingering consequences have divorced the southeastern highlands from the rest of the nation, leaving the delta's vulnerable headwaters to a management vacuum.
+
+​	Boyes, along with the Naitonal Geographic Okavango Wilderness Project he directs, envisions a protected area that spans the entire Okavango Basin and its three constiuent countires. But data comes before policy , and they needed data. So in May of 2015, Boyes and a team of scientists and guides set out with literal tons of gear to canoe a 1500-mile path from the origin of the Cuito River through that tributary's course to meet the Cubango River , transecting the delta to end at the salt flats marking the  delta's southern edge. 
+
