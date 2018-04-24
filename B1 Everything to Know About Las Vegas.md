@@ -1388,3 +1388,23 @@ experienced a huge transformation since the opening of Picasso museum in Malaga.
 
 ​	Boyes, along with the Naitonal Geographic Okavango Wilderness Project he directs, envisions a protected area that spans the entire Okavango Basin and its three constiuent countires. But data comes before policy , and they needed data. So in May of 2015, Boyes and a team of scientists and guides set out with literal tons of gear to canoe a 1500-mile path from the origin of the Cuito River through that tributary's course to meet the Cubango River , transecting the delta to end at the salt flats marking the  delta's southern edge. 
 
+# Breakthroughs From the Far Corners of Science
+
+> Eye clips, no-melt ice cream , and an ancient skull-cracking weapon.
+
+## CLIPPED VISION
+
+​	For a number of vision problems, the artificial intraocular lens above may be the solution . Also called an iris clip, the ultra thin lens is attached to the eye's iris using a tiny incision. This eye belongs to a 70-year-old man; after a cataract surgery failed, the IOL restored his vision almost fully.
+
+## NO-MELT ICE CREAM
+
+​	Scientists have found a solution to sticky ice-cream hands-entirely by accident .After the 2011 tsunami damaged Japanese strawberry fields, the fruit was too unsightly to be sold whole. Pharmacy professor Tomihisa Ohta and his team at Kanazawa Univertsity thought they had a solution: They would make an extract from the strawberries-liquid polyphenol-that could be used as a new dessert topping. When they added polyphenol to cream, though , it solidified instantly,making it useless as a topping —but perfect as a binding agent. They'd inadvertently created a frozen dessert that doesn't melt.Kanazawa ice-cream pops, which stay frozen for an hour at room temperature, are now sold throughout Japan.
+
+## STONE AGE SLUGGER
+
+​	The Thames beater, a fourth-millennius BC wooden club unearthed in London looks like it could crack a human skull. Archaeologists at Edinburgh University wanted to make sure. They acquired a fake human skull made of bonelike polyurethane, rubber skin , and gelatin to mimic human tissue.Then they smashed it with a replica wooden club The result:The they smashed it with a replica wooden club .The result:The fractures on the fake skull matched those on a Neolithic skull found in Austria. It was the first time a blunt- force Stone Age weapon has been identified in Europe. If we understand the violence of a time period, we can start to understand social interactions, says Meaghan Dyer, author of the 2017study to understand social interactions, says Meaghan Dyer, author of the 2017study in the journal Antiquity. Her next test: beatings with ancient ancient tools made of antler and stone
+
+## LIMPETS TO THE RESCUE
+
+​	A hungry algae-eater can protect an entire ecosystem from the effects of climate change, a study finds. Limpets-aquatic mollusks that graze on algae—kept microalgae from overtaking a rocky intertidal ecosystem and erasing its diversity.If important consumers like these are lost, the ecosystem is more likely to be harmed by a warming climate, says lead researcher Rebecca Kordas of the University of British Columbia
+
