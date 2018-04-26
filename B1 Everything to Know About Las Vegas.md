@@ -1442,3 +1442,26 @@ experienced a huge transformation since the opening of Picasso museum in Malaga.
 
 ​	With this powerful tool for undrstanding our own genetic code, DNA could provide clues to the identity of the Phoenicians, and could allow scientists to peer deeper into  the lives of the powerful Medici family , whose remains were exhumed in 2004.The magazine also made clear that the genetic revolution provided further backing in the overwhelming case for evolution. We've come a long way since Darwin looked for evidence in his pigeon coop, the writer drolly notes.
 
+# Alleged Golden State Killer Busted by DNA But Are Tests 100% Accurate?
+
+> An alleged serial killer has been charged by police in California for crimes reported decades ago. Here's what the science can and can't tell us.
+
+​	Advanced DNA testing reportedly provided police with a breakthrough in the infamous Golden State Killer case. Joseph James DeAngelo, 72,was arrested Wednesday by the Sacramento Sheriff on charges of murder. Police link the alleged Golden State Killer to 12 homicides 45 rapes, and 120 home invasions in the 1970s and 80s in California.
+
+​	Although police say they have a range of evidence in the case, they are touting the strength of what they claim is a 100% DNA match to samples taken from crime scenes decades ago. In response to  social buzz around the case, we wanted to expore the concept of a 100% DNA match . What certainty can DNA testing bring to a case?
+
+​	Short answer: Not really 100%. The longer answer:While DNA is extremely good at identifying individuals,mistakes have happened. Accurate identification is dependent on a number of factors, including the quality of the DNA sample, the number of genetic markers analyzed, whether the sample was prepared properly , and the ability of those doing the analysis to interpret the results.
+
+​	A DNA match identifies the potential source of the DNA, but it says nothing about the activity involved in the DNA coming to be where it was found Sue Pope, a DNA expert,told The Guardian.
+
+​	DNA is found in every cell in our bodies, from heart to skin, blood to bone. It contains genetic information that helps determine physical characteristics such as eye color. DNA is made up of billions of letters of the genetic code and, amazingly,99.9 percent of that code is exactly the same in every human. The 0.1 percent of the code that's different in each of us is what make us geneticaly unique.
+
+​	DNA testing uses a dozen or more genetic markers in the code to identify the important similarities or differences between people. The more markers used, the greater the accuracy, but also the cost of testing. The probability of the DNA profiles of two unrelated individuals matching is on average less than 1 in 1 billion.
+
+​	A sample can be from any part of the body, since the DNA is the same. In the lab, the DNA is separated and million or PCR . These DNA copies are cut into chunks at specific locations to make them easier to analyze and thus create a DNA fingerprint. The result is then compared to the DNA fingerprint from another sample to see if they match.
+
+​	Even advanced DNA testing , which allow the recovery of  minute traces of DNA , cannot prove how the DNA got to a crime scene. We are constantly shedding skin cells or leaving traces on door handles, on money, or even by shaking a hand. DNA can hang around in a room for months or blow out the window and be taken miles away.
+
+​	You could detect a single cell on a knife blade, but that doesn't mean anything it might have arrived there long before the crime or been transferred there by chance, John Butler, special assistant to the director for forensic science at the National Institute of Standards and Technology told Frontline.
+
+​	In the case of the alleged Golden State Killer, as  in all other cases, it is up to the prosecution to present a coherent argument that convinces a judge and jury of a defendant's guilt. Juries are asked to weigh the sum of evidence in each case, and to interpret the facts as best they can  within the confines of the law. It's not an easy job. DNA evidence can provide valuable information—though there are some limitations.
