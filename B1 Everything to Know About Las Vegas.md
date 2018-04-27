@@ -1465,3 +1465,24 @@ experienced a huge transformation since the opening of Picasso museum in Malaga.
 ​	You could detect a single cell on a knife blade, but that doesn't mean anything it might have arrived there long before the crime or been transferred there by chance, John Butler, special assistant to the director for forensic science at the National Institute of Standards and Technology told Frontline.
 
 ​	In the case of the alleged Golden State Killer, as  in all other cases, it is up to the prosecution to present a coherent argument that convinces a judge and jury of a defendant's guilt. Juries are asked to weigh the sum of evidence in each case, and to interpret the facts as best they can  within the confines of the law. It's not an easy job. DNA evidence can provide valuable information—though there are some limitations.
+
+# Explore an Abandoned Chinese Fishing Village
+
+> Once a prominent fishing village, Houtouwan,china , now attracts adventurous exporers craving some green.
+
+​	About 40 miles southeast of Shanghai , the small island of Shengshan rises up out of the East China Sea. There ,the former fishing village of Houtouwan is carpeted with lush, overgrown greenery , a foliage-rich shadow of what it used to be.
+
+​	In the 1990s, the town was home to about 2000 fishermen and their families. People were prosperous in Houtouwan for a time, but over the years the fishing community couldn't keep up with growing competition in nearby Shanghai. So, the fish-dependent polulation eventually migrated to mainland China for better prospects. Over the next few decades, the houses fell into disuse and local plants invaded.
+
+​	Dozens of modern houses that have been overwhelmed by nature dot the hillside right up to the sea. Some of their walls have fallen or their roofs have collapsed, while others have had their industrial finish replaced with blankets of local vince and grasses. Snaking dirt roads connect the abandoned houses and the remains of a fishing port hint at the village's commercial past. If you peek into some former homes,you can see decaying household objects and decrepit pieces of forgotten furniture.
+
+​	Less than a dozen people still live in Houtouwan today. But instead of profiting from fishing, they've turned to something else. Locals now tour a handful of day trippers though the once-thriving village and sell them water, which is the only  object for sale in the village. 
+
+​	Last year, Shanghai-based bideographer Joe Nafis visted the area to document it with another photographer. Although it normally takes five or six hours , it took the pair nearly 36 hours to reach the village from the mainland since they couldn't find the right ferries or connections to other local towns. Once he got to the ruined town, Nafis explored from ground level and from a bird's eye view with his drone.
+
+​	Using the drone to explore the village first was a good idea as the paths were not well maintained and overgrown, Nafis tells Colossal. Some of the buildings were in  tatters, while others looked  like they were going through a remedel. It was all very strange.
+
+​	From Shanghai ,you can to the Nanpu Bridge Bus Station and take a bus and ferry ride to Shengshan Island or to Gouqi Island, which is connected ot Shengshan via bridge. That commute alone takes about four hours. From there, you can take a taxi to Houtouwan and hike through the village and the  surroundng area. When you see a big temple, you're getting close.
+
+​	Vendors on the islands sell fresh seafood. Since Houtouwan is nearby abandoned ,you can't stay there, but accommodations are available in nearby villages.
+
