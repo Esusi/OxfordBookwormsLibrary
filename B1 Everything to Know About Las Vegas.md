@@ -1486,3 +1486,67 @@ experienced a huge transformation since the opening of Picasso museum in Malaga.
 
 ​	Vendors on the islands sell fresh seafood. Since Houtouwan is nearby abandoned ,you can't stay there, but accommodations are available in nearby villages.
 
+# The Dangers of Dzud, Mongolia's Lethal Winters
+
+​	For the second time this decade, extreme winter conditions on the Mongolian steppe caused extensive die-offs of sheep, goats, cattle, and camels, animals that traditional herding communities rely on for their survival.
+
+​	Due to an ongoing drought, the nomad's livestock faced a lack of adequate forage in the grasslands along the country's northern border with Russia, and they went into year's winter season much thinner than usual. If a bad winter follows a learn summer, livestock can burn through their fat reserves faster, and herders must turn to their hay reserves months earlier than usual.
+
+​	This past January, temperatures on the steppe plunged to -58 degrees Fahredheit —more than 10 degrees below average—and 70000 animals perished as a result.
+
+​	Severe winters that kill large numbers of livestock are common enough in Mongolia that there is  a local term for the phenomenon: dud.now, the consensus among the nomads is that dzud has been occurring more frequently in recent years, and it seems to be getting worse.
+
+​	Patrck Nicholson, director of communications for the Catholic aid group Caritas, spent part of January speaking with people in Mongolia's Uvs province about this year's dud. He says that a local governor, who goes only by the name Batjargal, believes overgrazing and changing climate are exacerbating the problem.
+
+​	We used to have four seasons,but now we only have three, Batjargal told Nicholson. Before ,June July, and Augst were warm and with rain . Different types of grass would grow, and the animals would get fat. Now , we have no rain and the wind dries up the grass.It is not what it used to be.
+
+​	This is a threat not to livestock, but to the nomads' way of life: Bereft of the animals they rely on for food and income, hundreds of thousands of herders have streamed into the country's capital of Ulaanbaatar, hoping to send their children to school and find work.
+
+​	Finding solutions is complicated by the fact that dzud is difficult to predict, since the conditions that give rise to the disaster are hard to pin down, says University of Maine climate researcher Bradfield Lyon.
+
+​	There's not just one pattern we can identify and say, Ah! This will lead to problems, he says. Even with  long-range weather prediction models, it's difficult to capture how long these things are going to persist. There's so much variability in  atmospheric patterns.
+
+# Why Your Dog Freaks  Out During Thunderstorme—And What to Do
+
+> With summer around the corner, we looked into what causes storm anxiety, and how to soothe our canines.
+
+​	Summer weather is just around the  corner—and with it thunderstorms that may freak out your dog. We looked into what causes this anxiety, and how to soothe their rainy-day feelings.
+
+​	Signs of anxiousness is dogs are ears back, tails down, eyes wide, panting, lip-licking and yawning, say Terry Curtis, a clinical behaviorist at the University of Florida College of Veterinary Medicine.
+
+​	Sometimes, their panic escalates to dangerous levels during thunderstorms . I've had cases where the dog has dug through walls, all the way through the drywall, Curtis says. Another dog jumped through a sliding glass door.
+
+## ELECTRIFIED
+
+​	Diopping barometric pressure—which dogs can sense—coupled with darking skies, wind, and the sheer noise of thunder can cause fearful reactions in dogs. 
+
+​	Some dogs have canine noise aversion, which can make them uncomfortable or even phobic about loud sounds.
+
+​	Static buildup in their fur is another likely explanation, says Nicholas Dodman, a veterinary behaviorist at Tufts University and chief scientific officer at the Center for Canine Behavior Studies.
+
+​	Large dogs and those with long or double coats easily build up static electricity, the way we do when we wear a sweater and get a shock from the car door if we're not wearing rubber-soled shoes, he says.
+
+​	A dog already nervous  during storms may get another shock when touching its nose to a metal object. Then mild discomfort could escalate to full-on phobia Dodman says.
+
+​	Kelly Ballyntyne, clinical assistant professor at the University of Illionsi College of Veterinary Medicine, says that it's  difficult to test whether static buildup causes anxiety in dogs.
+
+​	Our canines incredible noses may just be smelling changes in the environment that predict a storm is coming, she says.
+
+​	In addition, there's a little bit of evidence that there can be some genetic  predispositions for animals to develop noise phobia, such as border collies and Australian shepherds.
+
+## SOOTHING THE STORM-WEARY PUP
+
+​	While treating storm-phobic dogs, Dodman noticed that many canines seek out  hiding places grounded against electric shocks, such as bathtubs, jacuzzis,or behind the toilet tank.
+
+​	Curious about this odd behavior, he started informally asking owners where their dogs hide, and half of them said the bathroom. One 80-pound German shepherd even jumps into the sink , he says.
+
+​	Curtis and Dodman both recommend owners buy a anti-static jacket to keep the dog calm, and Dodman adds that rubbing them down with an anti-static dryer sheet also helps. Sung-fitting wraps can also be comforting.
+
+​	Ballyntyne suggests dog owners videotape their dog while away to look for signs such  as pacing , panting, and restlessness. These behaviors could reveal mild separation anxiety that 's exacerbated by  storms.
+
+​	She also advises letting the animal decide where it feels safe, and then making that area more comfortable by adding while-noise machines-to buffer the noise of thunder—or acoustic tiling for soundproofing.
+
+​	And all the experts agreed that a veterinarian can prescribe medication if needed.
+
+​	If the dog is panicked, Ballantyne says, anti-anxiety medication will go a long way to improve that dog's quality of life.
+
