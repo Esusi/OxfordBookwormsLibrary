@@ -1550,3 +1550,33 @@ experienced a huge transformation since the opening of Picasso museum in Malaga.
 
 ​	If the dog is panicked, Ballantyne says, anti-anxiety medication will go a long way to improve that dog's quality of life.
 
+# Meet the Man Who Knew Cecil the Lion Best
+
+> Andrew Loveridge tracked Cecil for years before the lion was killed. He talks about his love for Cecil-and the plight of African lions.
+
+​	When he was shot by American trophy hunter Walter Palmer in 2015, Cecil the lion became an instant media sensation, his death mourned around the globe by millions, the man killed him branded a monster and eventually forced into hiding. It was , above all, the fact that Cecil was left to die a long, slow ,agonizing death that so incensed the world.
+
+​	In his new book, Lion Hearted, Andrew Loveridge, a research fellow at Oxford Uniersity in England and the man who knew Cecil better than anyone, tells the story of the lion he loved, as well as the wider issues facing these magnificent creatures.
+
+​	Speaking from Oxford, he explains why Walter Palmer was the perfect hate figure; why banning hunting alone will not save African lions; and why Cecil's death was a major turning point for the trophy hunting lobby.
+
+> You were the person who equipped Cecil with a radio collar. Describe that experience and how you felt, seven years later, when you heard he had been shot.
+
+​	I collared him for the first time in 2007. He was a member of a two-male coalition that had moved into our study area.He was an amazing , big lion, but most of them are in that area. He became unique in that he was a long-term study. We studied him for seven years.
+
+​	He lived in the tourists hub of Hwange National Park, so he became very well known to both the research team and to tourists. He became well habituated to vehicles, so you could approach him very closely and people could get fantastic photographs and videos of him.
+
+​	The last time I saw Cecil was about a month and a half before he was killed .We were tracking him from his radio collar and found him sitting on the road. We sat about two meters away  from him, enjoying being that close to a big lion , and he was completely unconcerned .Six weeks later, someone comes along with a bow and arrow and shoots him. It is incredibly distressing when an animal you've got to know for so long is subjected to a very , very painful death.
+
+	## Cecil lived in the Hwange National Park in Zimbabwe. Put us on the ground and explain the kinds of problems lions face there.
+
+​	Hwange is in the far west of Zimbabwe, right on the  Botswana border. It's about  14000 square kilometers , about the size of Northern Ireland. We have about 500 lions living there, so it's quite a stable  population. But around the edges of the park you have local people living a subsistence lifestyle with cattle and growing crops. And you have hunting concessions. They get hunting quotas to shoot lions, elephants, leopards, and other animals.
+
+​	The threats that face lions are, firstly, that they come into contact with people. A lot of livestock is lost to lions every year around Hwange. These are very poor people and they get very irate and often those lions end up being killed. The other threat is trophy hunting  and that is why we set up the project in the first place. There was a lot of concern that the quotas for hunting lions weren't sustainable or realistic and , as it turned out , they weren't. Around Hwange the biggest source of mortality, particularly for male lions, is trophy hunting.
+
+## Trophy hunting got a terrible rap after the death of Cecil. But for the local peopel it is a source of income, isn't it? Paradoxically, it also provides protected areas for lions. Talk us through these tensions.
+
+​	You have to look back to the begining of the 20th century when colonial administrations were allocating lands. They thought, We want to protect wildlife because we like wild animals, mostly because these guys were elite, upper class hunters themselves. That was  the root of conservation in Africa. These areas were set aside for wild animals that would be hunted and that's continued right through.
+
+​	Some of those areas bacame national parks, where no hunting is permitted. But about 1.2 million square kilometers of land in Africa is set aside for hunting. These areas actually do protect wildlife , by protecting  their habitat. Hunting also benefits economies, though not as much as hunters claim. It certainly benefits local Africans very little . A lot of the revenue is skimmed off by political elites.
+
