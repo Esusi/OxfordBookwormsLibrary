@@ -1580,3 +1580,27 @@ experienced a huge transformation since the opening of Picasso museum in Malaga.
 
 ​	Some of those areas bacame national parks, where no hunting is permitted. But about 1.2 million square kilometers of land in Africa is set aside for hunting. These areas actually do protect wildlife , by protecting  their habitat. Hunting also benefits economies, though not as much as hunters claim. It certainly benefits local Africans very little . A lot of the revenue is skimmed off by political elites.
 
+# Jupiter at Its Best , and More Can't-Miss Sky Events in May
+
+> The solar system's largest planet will take center stage, while a meteor shower and a planet-hopping moon also light up the night.
+
+​	Sky-watchers will get a chance in  the coming weeks to catch a storied meteor shower , gaze at the largest planet shining its brightest, and witness the moon playing hop-scotch with neighboring worlds across the overnight sky.
+
+​	So dust of those binoculars, and turn your gaze toward the heavens this month.
+
+## Venus and Bull's Eye-May 2
+
+​	At dusk , look for the super-bright planet Venus to join the star Aldebaran-the red eye of Taurus , the bull-low in the northwesern sky. The two star-like objects will appear to be separeated by six degrees,equal to about the width of your fist held at arm's length. While both points of light appear similar in brightness, you should easily notice their distinct colors:stark white for Venus and organge-red for Aldebaran.
+
+## Moon, Saturn , and Teapot -May 4
+
+​	Early risers can watch the waning gibbous moon join the ringed planet in the eastern sky about an hour before local sunrise. As an added observing challenge, book for a fainter nake-eye star below the cosmic pair. Lambda Sagittari marks the tip of the Teapot, a pattern of stars known as an asterism.Binoculars may help pinpoint all these stars nestled within the constellation Sagittarisu , the archer.
+
+## Eta Aquarid Meteor Shower-May 5
+
+​	Get set for shooting stars all week long with the arrival of the Eta Aquarid meteor shower, which will peak on the night of May 5 and into the  following morning. Trace the paths of individual meteors, and you will notice that they appear to originate from the eastern part of the sky, where Aquarius , the water bearer, can be seen this time of year.
+
+​	Most of the sky show will be visible from southerly latitudes in the Northern Hemisphere and across the entire Southern Hemisphere. Astronomers are expecting rates of up to 30 meteors an hour streaking through the northest skies starting around 10 pm local time. The best views will be from the dark countryside, away from city light pollution. But you can probably catch a few of the brighter meteors, including a couple of fireballs, sweeping through the upper atmosphere even from a suburban backyard.
+
+​	This meteor shower's claim to fame is that the shooting stars are lefeover pieces of Halley's Comet, which last swung past Earth in 1986. The  famous comet won't be back until 2062, but during the annual Eta Aquarids, we can still see the sand grain-size particles shed by this icy visitor burn up high above our heads.
+
