@@ -1604,3 +1604,39 @@ experienced a huge transformation since the opening of Picasso museum in Malaga.
 
 ​	This meteor shower's claim to fame is that the shooting stars are lefeover pieces of Halley's Comet, which last swung past Earth in 1986. The  famous comet won't be back until 2062, but during the annual Eta Aquarids, we can still see the sand grain-size particles shed by this icy visitor burn up high above our heads.
 
+# These Owl Chicks Have Two Moms and a Dad-a First
+
+> Bird experts are surprised by the first known observation of polygamy in great horned owls.
+
+​	When Jim Thomas came into his office one morning in late February, he realized he was not alone. I heard this racket outside my window, says Thomas, a hydrologist at the Desert Research Institute in  Reno,Nevada. 
+
+​	These, he witnessed a battle between ravens and a pair of great horned owls , two species that sometimes grapple for territory. The owl couple had decided to make a home in the rock-strewn ledge outside the window, and soon prevailed.
+
+​	Staff members were delighted to have great horned owls so close. But then things took a strange turn: A third owl showed up, a female
+
+​	The two females began laying eggs, five in total , only about a foot apart.Meanwhile the male began providing them food, bringing back mice and the odd rabbit.
+
+​	This highly unusual behavior is the first record of polygyny-a male matting with two or more females —in great honed owls, says Christian Artuso, an ornithologist with Bird Studies Canada.
+
+​	For one, these birds of a feather decidedly do not flock together; they're territorial and usually don't nest one another. Perhaps more importantly, they're monogamous.
+
+​	Polygyny  has been recorded in related species, such as barn owls and Eurasian eagle owls, but is still very among raptors.
+
+​	That may be  because it  requires bountiful prey, a situation in which the male can provide two females with enoug mice  while they are nesting,  Artuso says.
+
+​	David Catalano, an ornithologist with the Nevada Department of Wildlife, agrees. Very , very odd, he says.
+
+## MISDIRECTED PARTETING
+
+​	The institute decide to set up a  webcam to broadcast live footage, and the animals have become an Internet sensation. It's been quite frankly amazing, Thomas says.
+
+​	But then it got more weird. The larger female, the second to show up, did a poor job of tending her eggs, which failed to hatch, Catalano says. When the smaller bird's eggs yielded two owlets, she began caring for them as well, sheltering them from elements and venturing out to fetch mice.
+
+​	This could be a type of misdirected parenting, in which the larger owl saw the owlets nearby and thought they were her own, he adds.
+
+​	It's also possible that the smaller femals is actually the larger one's daughter , or perhaps they're sisters.
+
+​	That would help explain why the birds are more comfortable around each other than most great horned owls. But without dterming their genetics, everything is just a juess, he says.
+
+​	Though the females sometimes tussle—they get into some pretty good battles, pecking at each other—generally they get along. To be honest, they're coparented quite well.
+
