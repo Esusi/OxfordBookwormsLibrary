@@ -1640,3 +1640,31 @@ experienced a huge transformation since the opening of Picasso museum in Malaga.
 
 ​	Though the females sometimes tussle—they get into some pretty good battles, pecking at each other—generally they get along. To be honest, they're coparented quite well.
 
+# In Cities, Wildlife  Evolves Astonishingly Fast
+
+> Animals, plants, and insects adapt to the extreme urban environment—and to specific subway lines.
+
+​	Most naturalists turn up their noses at cities, regarding them as anti-nature-sterilie wasterlands of concrete and steel. But evolutionary biologist Menno Schilthuizen, author of Darwin Comes to Town , takes th eopposite view: Urban environments are in fact powerhouses of evolution, where  animals as diverse as blackbirds and bobacts are adapting to their new surroundings , with startling results.
+
+​	Speaking from his home in Leiden, Netherlands, Schilthuizen explains why mosquitoes on the Piccadilly Line in London's Underground are genetically different from those on the Bakerloo Line; why cities accelerate evolution in ways Darwin could not have imagined; and why sex in the city is  helping urban blackbirds evolve into a new species. 
+
+## Of all the adaptations you describe, the most extraordinary is surely the London Underground mosquito. Tell us how it evolved.
+
+​	Despite its name, the London Underground mosquito is not restricted to London. It's the name that has caught on for a species that lives in human-constructed, underground spaces all over the world—including the Amsterdam Metro-and cellars and basements all over the world.
+
+​	It is called the London Underground mosquito because it affected people who hid there during the Blitz in 1940. What's special about it is that it seems to be a species that has evolved very recently. Its ancestor was culex pipiens , a common mosquito that lives above ground , feeds only on birds, and forms large mating swarms.
+
+​	This new species , culex pipiens molestus, is different. It feeds on human blood, mates one on one, and female doesn't require a blood meal before it lays eggs , as an aboveground mosquito  does. On top of that is the fact that  it has recently evolved: Because the  mosquitoes are confined to separate subway lines, they don't mix and so have specific genes, which may be an adaptation to conditions in that particular subway line. The only way they would become a unified species is if they all changed trains at Oxford Cirus.
+
+## Most naturalists regard cities as sterile wastelands. How did you get interested in urban ecology and why do you call cities evolutionary powerhouses?
+
+​	I got interested in ecology and evolution in cities because cities are, in many ways, extreme environments  . Cities have urban heat island; they are  polluted and noisy; they have artificial light; and  there's concrete everywhere . Because the environment is so  different, some subspecies disappear, but others adapt to  the new conditions.
+
+​	The evolution of species also occurs faster because new nutations,which give a species the ability to survive in that extreme environment, will spread very rapidly. This is what we call HIREC , or human-induced rapidevolutionary change. We see that in cities and also in other enironments where humans create a new habitat or ecological  situation. In those places you see very, very fast evolutionary adaptations , which can take  place in the space of decades or even years.
+
+## That contradicts a core tenet of Darwin's theory , doesn't it? That evolution is a very slow  process that unfolds over millions of years.
+
+​	I think Darwin understimated the speed it can happen, paticularly with species that have numerous generations in a short space of time. Generation time is the evolutionary clock speed, so if you have multiple generations per year you can accumulate evolutonary changes much more quickly than humans can,  for example, which have one generation every 20 years.
+
+​	An example is the Hawk's Beard plants in the French city of Montpellier. A French researcher named Pierre-Olivier Cheptou studied the seed science of these weeds that grow in little  patches of soil around trees that are planted along city streets. These plants make two kinds of seeds, big seeds and ones. The small ones have little parachutes that they use to float on the wind. In the city, we found that these small-sized  seeds are disappearing. That has to do with the fact that in the city those drifting seeds will probably land on tarmac and will not be able to germinate. So the plant's genes invest more in the heavy seeds, which fall to the floor and germinate at the foot of the parent plant. Those genes have an advantage in the city, which has resulted in a change in as little as 10 to 20 years. So, really fast!
+
