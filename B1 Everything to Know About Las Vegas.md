@@ -1668,3 +1668,33 @@ experienced a huge transformation since the opening of Picasso museum in Malaga.
 
 ​	An example is the Hawk's Beard plants in the French city of Montpellier. A French researcher named Pierre-Olivier Cheptou studied the seed science of these weeds that grow in little  patches of soil around trees that are planted along city streets. These plants make two kinds of seeds, big seeds and ones. The small ones have little parachutes that they use to float on the wind. In the city, we found that these small-sized  seeds are disappearing. That has to do with the fact that in the city those drifting seeds will probably land on tarmac and will not be able to germinate. So the plant's genes invest more in the heavy seeds, which fall to the floor and germinate at the foot of the parent plant. Those genes have an advantage in the city, which has resulted in a change in as little as 10 to 20 years. So, really fast!
 
+# Are Marsquakes Anything Like Earthquakes? NASA Is About to Find Out
+
+> A new spacecraft that just launched will investigate why and how much the red planet rumbles.
+
+​	On Earth, we call them earthquakes , and on the moon they're called moonquakes. On Mars? They'd be marsquakes —except no one really knows how frequently the red planet jiggles and shakes, or how big those marsquakes can get.
+
+​	But humans could soon find out just how much the fourth rock from the sun is rocking and rolling: NASA's newest Mars-exploring spacecraft , called InSight, blasted off from California's Vandenberg Air Force Base on Saturday at 4.05 am Pacific time, marking the  first time an interplanetary probe has launched from the West Coast . The spacecraft will cruise through the solar system for six months and rendezvous with Mars on November 26.
+
+​	Unlike many Mars missios that have come before, InSight will not be exploring the red planet's surface. Instead, as the name suggests, the spacecraft will peer deep into the Martian interior and try to paint a picture of how this alien world works from its core on outward, which could help us understand what's happening on even more distant alien worlds.
+
+​	What goes on in the interior of a planet drives the surface geologic activity and even the atmospheric evolution, says Suzanne Smrekar of NASA's Jet Propulsion Laboratory, a deputy principal investigator for the InSight mission. You really need to understand the overall geological evolution to begin to understand the habitability of planets.
+
+## Where is InSight Landing?
+
+​	After parachuting through the Martian atmosphere , the spacecraft will park itself in Elysium Planitia, a region selected specifically because it's more or less geologically unremarkable and because it's on the equator, where more prolonged sunshine will be good for the solar-powered spacecraft.
+
+​	For InSight, whose primary focus is to look to the interior of the planet, what the surface looks where we land doesn't matter as much, says Renee Weber of NASA's Marshall Space Flight Center.
+
+## OK, Where's it going after that?
+
+​	Nowhere, Unlike the fleet of rovers that have stumbled, rolled , and climbed their way across evaporated lakes and into craters, InSight is staying in one place. Its job is basically to stay as still as possible , the better to detect the motion of Mars itself.
+
+## How does one simply—peer into a planet?
+
+​	It's true, seeing through a planet is tricky even for the most insightful of spacecraft, so the lander will rely on several instruments to peer into the  Martian underground. These include a probe that will burrow between 10 and 16 feet deep and measure  heat radiating inside the planet, as well as extremely sensitive seismometer, built by the French national space agency, that's designed to detect even the most gentle of marsquakes.
+
+​	The seismometer is so sensitive that even the motion of its parts against the atmosphere creates noise that we want to eliminate, Weber says. Because of its extreme sensitivity, the seismometer requires some hefty vacuum-sealed shieding to eliminate vibration caused by wind or other surface events that can create annoying noise in the data. A leak in that vacuum chamber delayed the spacecraft's original launch date by 26 months. Now , though, team is confident this crucial instrument is ready to ride.
+
+​	After a few months on Mars, InSight will drop the seismometer directly onto the planet's surface, a configuration that will eliminate some of the problems that confunded a similar experiment on the 70-era Viking landers.Then ,if all goes well, the spacecraft and its instruments will keep track of the planet's beats and spasms for two Earth years, or the equivalent of roughly one Martian year.
+
