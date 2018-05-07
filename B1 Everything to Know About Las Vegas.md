@@ -1698,3 +1698,35 @@ experienced a huge transformation since the opening of Picasso museum in Malaga.
 
 ​	After a few months on Mars, InSight will drop the seismometer directly onto the planet's surface, a configuration that will eliminate some of the problems that confunded a similar experiment on the 70-era Viking landers.Then ,if all goes well, the spacecraft and its instruments will keep track of the planet's beats and spasms for two Earth years, or the equivalent of roughly one Martian year.
 
+# It's Official:Tut's Tomb Has No Hidden Chambers After All
+
+> The trird radar scan of the pharaoh's burial site conclusively shows that no additional mysteries lurk immediately behind its walls.
+
+​	Recent radar scans of Tutankhamun's tomb conclusively prove that there are no additional chambers or passages behind the walls of the famed pharaoh's hurial chamber in the Valley of the Kings, Egyptian offcials announced today.
+
+​	A statement was released today on behalf of Mostafa Waziri, Secretary General of the Supeme Council of Antiquites, during the fourth annual International Tutankhamun GEM Conference, held at the Grand Egyptian Museum in Giza.
+
+​	The announcement brings to a disappointing end an investigation that began three years ago, when Egytologist and National Georaphic grantee Nicholas Reeves theorized that the tomb of legendary 18th-Dynasty queen Nefertiti may be hidden behind the walls of Tut's 3300-year-old tomb.
+
+​	Two previous tests of Reeves' theory, using ground-penetrating radar to search for hidden chambers or passages , were inconclusive.
+
+​	The third and most recent radar investigation , conducted earlier this year with support from the National Geographic Society, is a joint scientific mission coordinated by Franco Porcelli of the Polytechnic University of Turin. It's considered the most comprehensive search yet.
+
+​	The scientific report submitted on Saturday by Porcelli to Waziri and Khaled El Enany, Egypt's Minister of Antiquites, ends with the statement: We conclude, with a very high level of confidence, that the hypothesis concerning the existence of hidden chambers adjacent Tutankhamun's tomb is not supported by the GPR data.
+
+## SEEING THE UNSEEN
+
+​	Ground-penetrating radar, a remote-sensing technique commonly used in prospecting for oil and gas and other minrals, is an increasingly critical tool for archaeoloigists. It enables them to detect man-made voids in the earth , such as tombs and passages, without unnecessarily disturbing  fragile ancient sites.
+
+​	In 2015 , radar specialist Hirokatsu Watanabe conductd a GPR scan of Tut's tomb and announced startling results: evidence for hidden doorways on the north and west walls of the burial chamber.
+
+​	However, a second radar scan of the tomb, performed by National Geographic Society engineers in 2016, did not replicate Watanabe's results.
+
+​	Following a contenious discussion over the discrapancy between the results of the wo scans at the 2016 International Tutankhamun GEM Conference, Minister EL Enany commissioned a comprehensive ite-breaker radar analysis.
+
+## COVERING ALL THE BASES
+
+​	The report submitted to Egyptian officials today includes the results of three new GPR scans,  conducted in February 2018 by three independent teams and each using a different frequency—high, medium , and low. High-frequency radar can provide detailed results up to distances of about seven feet; lower frequencies penetrate deeper but provide coarser results.
+
+​	The research teams-from the Polytechnic University of Tuirin, Italy, in partnership with the University of Turin and two private companies, Geostudi Astier and 3DGoimaging-worked over the course of seven days and collected data equivalent to scanning 1.6 surface miles.
+
