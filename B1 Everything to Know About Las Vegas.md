@@ -1730,3 +1730,37 @@ experienced a huge transformation since the opening of Picasso museum in Malaga.
 
 ​	The research teams-from the Polytechnic University of Tuirin, Italy, in partnership with the University of Turin and two private companies, Geostudi Astier and 3DGoimaging-worked over the course of seven days and collected data equivalent to scanning 1.6 surface miles.
 
+# Discover the Best of Orlando
+
+> From nature escape to space adventures —and yes, Discovery World—here are the top 10 things to do in Orlando
+
+​	Florida's frouth-largest city has an outsized reputation when it comes to one thing: theme parks. And while the parks' reputation as iconic tourist destinations is more than justified, there's plenty to explore just outside their gates in The City Beautiful.
+
+## NATURAL WONDER
+
+​	Blue Spring State Park has Orlando's best mix of nature 's gifts in one place. The spring itself , sending out 104 million gallons of water a day, is a natural swimming hole, where the crystalline water is a steady 72F From mid-November through March, the park is ideal for seeing West Indian manatees, which populate the 2643-acre park's waters n abundance.
+
+## HISTORIC SITE
+
+​	Kennedy Space Center has been sending astronauts toward the since the 1960s Space Race era. The Visitor Center provides tours to behind-the-scenes areas such as the Vehicle Assembly Building and the Launch Control Center. Even the most basic ticket provides access to an interactive Atlantis shuttle attraction, a shuttle simulator, space suit displays and artifacts from the Apollo rockets.
+
+## NATIONAL PARK
+
+​	Canaveral National Seashore is nearly untouched Atlantic shoreline along a thin barrier island stretching for 24 miles. Playalinda Beach , closest to Orlando, is a series of 14 parking lots with rest room facilities. More than 1000 types of plants and 310 species of birds reside here, including 15 threatened or endangered birds , reptiles and mammals.
+
+## MOST ICONIC ATTRACTION
+
+​	Orlando may be best known for Disney World—specifically the Magic Kingdom theme park with its towering gold-and-blue Cinderlla Castle. Disney World has three additional theme parks,two water parks , the megamall Disney Springs, a sports completx, three dozen hotles and four golf courses, plus water sports, spas and a wedding pavilion.
+
+## LATE NIGHT
+
+​	Once the dinner hour ends, Millennials and Gen Yers descend upon the Central Business District's Orange Avenue and its neighborng roads.Sixty or so nightlife establishments cater to every crowd. The Beacham is a concert and DJ venue within a 1921 movie theater. Craft cocktails, rooftop panache, dancing , small-batch beers and multiple TV screens define other spots.
+
+## EXPERIENCE
+
+​	Orlando's chains of lakescan be seen via leisurely educational tours through pretty scenery. Scenic Boat Tour takes guests on an hour-long pontoon tour of the Winter Park Chain of Lakes , Orlando Lake Tour through the Butler chain and Premier Boat Tours around the Harris chain. Cat Boat Tours of Mount Dora uses two-seater CraigCat power boasts instead.
+
+## NEIGHBORHOOD TO EXPLORE
+
+​	A dowdy community defined by aged strip malls a decade ago, today teh Audubon Park Garden Distric is a hipster-filled center for green living with artisan bakers, organic grocers and craft brewers plus a food hall with an organic garden and Monarch waystations. Song Bird Park is home to 200 native plants plus an Urban Bird Sanctuary with hand-painted birdhouses.
+
