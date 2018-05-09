@@ -1764,3 +1764,33 @@ experienced a huge transformation since the opening of Picasso museum in Malaga.
 
 ​	A dowdy community defined by aged strip malls a decade ago, today teh Audubon Park Garden Distric is a hipster-filled center for green living with artisan bakers, organic grocers and craft brewers plus a food hall with an organic garden and Monarch waystations. Song Bird Park is home to 200 native plants plus an Urban Bird Sanctuary with hand-painted birdhouses.
 
+# Discover the Best of Washington DC
+
+> Make the most of your time in the capital with these top ten tips.
+
+​	As the capital of the United States , Washington DC,offers travelers a bounty of world-class attractions and cultural disversity. Here are ten great to spend your time.
+
+## NATURAL WONDER
+
+​	Only 15 miles from Washington DC is the 800-acre Great Falls Park. Its centerpiece is a series of waterfalls on the Potomac River shaped by large, jagged rocks. The park also includes viewing platforms, hiking trails, and picnic areas.
+
+## ARCHAEOLOGICAL SITE
+
+​	Part of the Smithsonian Institution, the  National Museum of Natural History sits on the National Mall and is dedicaded to sharing information and inspiring learning about the natural world. A preserved 12-ton African elephant greets visitors in the museum's rotunda. Other must-see displays are the Hope Diamond , the live insect zoo, and the dinosaurs.
+
+## UNESCO SITE
+
+​	Localted two and a half hours south of Washington, in Charlottesville, Virginia, Monticells and the University of Virginia's Academical  Village together are a UNESCO World Heritage Site. Monticello was the plantation home of President Thomas Jefferson, and teh Academical Village is part of the original construction of the University of Virginia. Jefferson designed both.
+
+## BEST DAY TRIP
+
+​	Annapolis , Maryland, is a direct 45-minute drive from Washington. The historic city is the capital of Maryland and home to the US Naval Academy. Its downtown cobblestone streets are lined with quirky retail outlets and restaurants , ranging from ye olde to Caribbean , serving fresh seafood from the adjacent Chesapeake Bay.
+
+## OFF THE BEATEN PATH
+
+​	Often overlooked by visitors , the National Arboretum is a tucked away on the eastern edge of DC It occupies nearly 450 acres and is managed by the US Department of Agriculture's Agricultural Research Service. Visitors can explore more than a dozen distinct gardens and unique attractions including a display of 22 Corinthian columns from the US Capitol.
+
+## MOST ICONIC ATTRACTION
+
+​	Visitors to the Lincoln Memorial are able to stand at the exact spot where Martin Luther King Jr deliverd his  I Have a Dream speech in 1963. That fact, along with the memorial's captiating design as a tribute to the assassinated 16th American president, are what make it the most visited attraction in Washington, DC. and easily among the top National Park Service sites in the country.
+
