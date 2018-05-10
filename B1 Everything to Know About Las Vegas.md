@@ -1794,3 +1794,33 @@ experienced a huge transformation since the opening of Picasso museum in Malaga.
 
 ​	Visitors to the Lincoln Memorial are able to stand at the exact spot where Martin Luther King Jr deliverd his  I Have a Dream speech in 1963. That fact, along with the memorial's captiating design as a tribute to the assassinated 16th American president, are what make it the most visited attraction in Washington, DC. and easily among the top National Park Service sites in the country.
 
+# Everything to Know About Chicago
+
+> Here's how to plan the best possible trip to the Windy City
+
+​	Humble Midwestern roots keep this vibrant city with  world-class architecture, arts and dinning grounded .Chicago loves its sports, too, and if a team is doing well, you'll feel the energy pulsing through the streets. Locals are friendly and happy to help with directions or recommendations.
+
+## WITH TO GO
+
+​	Summers can be humid and hot and winters frigid. Spring is finicky, but autumn brings the most predictably nice weather although couple with sports playoffs and business events it can be just as crowded as summer. Hotel rates are lowest in January and February.
+
+## CELEBRATE
+
+​	Lollapalooza is the  summer's biggest music festival, taking over all of Grant Park in August. Chicago Gourmet offers a taste of the best food and drink in the city all in one whirlwind weekend in Millennium Park. Visit during St. Patrick's Day to see the Chicago River dyed bright green during the annual revelry celebrating the city's Irish heritage.
+
+## WHAT TO EAT
+
+​	Deep dish pizza pie is the city's most famous dish, although it's different to eat more than one hefty slice. A dripping wet French-dipped Italian beef sandwich and Chicago hot dog that's been dragged through the garden are musts for carnivores. Chicago also has a ridiculous amount of  steakhouses ,so  dig into a tomahawk chop that's bigger than your head.
+
+## SOUVENIR TO TAKE HOME
+
+​	Pick up artwork, accessories and gifts from one of the  90 plus artisans at the Andersonville Galleria and  musical  accoutrements at Transistor down the street. For those with a sweet tooth, don't pass up the chocolate truffles from Katherine Anne Confections.
+
+## SUSTAINABLE  TRAVEL TIP
+
+​	Whichever airport you fly into , there's a convenient public transportation option into the city to avoid highway traffic . Take the Blue Line downtown from O'Hare or Orange Line from Midway.
+
+## INSTAGRAM-WORTHY VIEW
+
+​	A selfie with shiny reflective bean in Millennium Park is Chicago's most iconic shot. The sculpture's real name is Cloud Gate, by British artist Anish Kappor. A lot of hotels in the city have remarkably great city and lake views too, especially from the rooftop.
+
