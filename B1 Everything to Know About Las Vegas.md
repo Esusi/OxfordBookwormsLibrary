@@ -1824,3 +1824,25 @@ experienced a huge transformation since the opening of Picasso museum in Malaga.
 
 ​	A selfie with shiny reflective bean in Millennium Park is Chicago's most iconic shot. The sculpture's real name is Cloud Gate, by British artist Anish Kappor. A lot of hotels in the city have remarkably great city and lake views too, especially from the rooftop.
 
+# 4 Easy Tips for Better Stargazing
+
+> Here's how to seek clarity amid the cosmic mysteries of the night sky.
+
+​	Whether Nat Geo Explorer Munazza Alam travels to a sacred summit in Hawaii or the parched plateaus of Chile, her goal is the same: to seek clarity amid the  cosmic mysteries of the night sky. As a graduate student in astronomy and astrophysics at Harvard University, she focuses on exoplanets and search for extraterrestrial life. Try her tips for better stargazing.
+
+## DISAPPEAR INTO THIN AIR
+
+​	Perched at nearly 14000 feet, the observatory on top of Hawaii's Mauna Kea is the world's largest, with 13 telescopes that attract astronomers from all over. But an awe-inspiring spectacle is  visible to the naked eye at the visitor center partway down the slope. It's better to stargaze at mid-altitude, says Alam. The atmosphere at the summit is so thin our eyes receive less oxygen.
+
+## GO DARK
+
+​	Look for cloudless skies far from the glow of city lights. Stargazing requires a bit of luck, admits Alam, who relies on her smartphone's Accu-Weather app for up-to the minute forecasts. The Dark Sky Finder app identifies nearby spots with ideal conditions and lists more than a thousand sites worldwide with reviews and directions.
+
+## DO MORE THAN STARE
+
+​	Download the Sky Guide app, and hold your phone up to the sky for a celestial cheat sheet. You'll able to impress fellow stargazers by pointing out planets and constellations. To take photos, bring a remote trigger for long exposures, and learn which camera settings to select using an app like PhotoBuddy.
+
+## BE PREPARED
+
+​	If you're headed for  higher altitudes, take your time getting up there to avoid altitude sickness. And bring layers. On Mauna Kea, for example , temperatures run 30 to 40 degrees cooler than down on the beach. Alam also carries a compass and a red flashlight-plus coffee and chololate to stay wide-awake.
+
