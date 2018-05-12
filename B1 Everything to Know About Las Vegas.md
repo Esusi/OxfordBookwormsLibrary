@@ -1846,3 +1846,19 @@ experienced a huge transformation since the opening of Picasso museum in Malaga.
 
 ​	If you're headed for  higher altitudes, take your time getting up there to avoid altitude sickness. And bring layers. On Mauna Kea, for example , temperatures run 30 to 40 degrees cooler than down on the beach. Alam also carries a compass and a red flashlight-plus coffee and chololate to stay wide-awake.
 
+# Meet the Diffcult Women Who Wrote Their Own Rules
+
+> These 29 women weren't willing to be anything but fully themselves, from Jane Goodall to Frida Kahlo to Billie Jean King.
+
+​	If you obey all the rules, you miss all the fun, Katharine Hepburn once remarked. So in honor of Monther's Day, we have asked Karen Karbo, author of In Praise of Difficult Women, to talk about some of the iconic women that have inspired her, from aviator Amelia Earhart to newscaster Rachel Maddow and National Geographic Explorer Jane Goodall. What links them all is a determination to trust themselves and courage to break the rules.
+
+​	Speaking from her home in Porland, Oregon, Karbo explains why Jane Goodall was one of her childhood heroes; why she finds the demands of modern American womanhood such a challenge; and why women are often labelled difficult just for being themselves.
+
+## Being diffcult is usually a negative character trait. But you celebrate it as a virtue. Unpack the paradox for us and explain how it links the deverse women you profile
+
+​	There are invisible quotes around diffcult that don't appear in the title. Women who are strong , passionate and determined don't walk around saying, Oh look,I'm diffcult. They just believe they're living their lives. It's a word slapped on them by other people. If you don't care too much what people think, you risk being called a diffcult woman because you're not staying in your lane or doing what is expected of you. For the most part, any time a woman doesn't do that she can be called difficult. When a woman inconveniences somebody she can be called diffcult. A woman who believes her own needs goals and desires are at least as important as everyone around her risks being called diffcult .One of the first reviewers said, That's a pretty low bar. I said, Thank you for making my point for me. Because it actually doesn't take much to be considered a diffcult woman. That's why there are so many of us.
+
+​	In the book ,there are 29 women and each woman has what I believe to be her very specific traits. That was the lens that I used when I wrote these essays. If you look at someone like Rachel Maddow, she's brainy. Oftentimes a woman who is not afraid to display her intelligence can be considered diffcult . It's like What is she, a know-it-all?
+
+​	The first person in the book JK Rowling, whom I call scrappy. She is someone who, given the position she finds herself in, could rest on her laurels, continuing the Harry Potter franchise or writing adult mysteries. But she takes to Twitter, calls people out, speaking truth to power, and so gets in a lot of hot water. But that's her nature. She needs to express her opinion regardless of the fallout.
+
