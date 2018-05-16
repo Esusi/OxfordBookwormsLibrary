@@ -1882,3 +1882,19 @@ experienced a huge transformation since the opening of Picasso museum in Malaga.
 
 ​	The footprint is adding to evidence that Arabian Peninsula may have been an important stepping stone for humans leaving the African continent for the first time. Evidence of humans appears in East Africa around 20000 years ago, but mass migration off the continent was long thought to have taken place 600000 years ago. Newer finds-like the 180000-year-old jawbone found in Israel earlier this year-suggest an earlier start.
 
+# The Death of the Plastic Straw
+
+> It's a growing trend:Hotels, resorts, safaris,and cruises are increasingly banning plastic straws.
+
+​	In 2015 ,a disturbing video of an olive ridley sea turtle suffering from a plastic straw stuck in its nose went viral, changing many viewers' attitudes toward the plastic tool that is largely a convenience for most people.
+
+​	But how can the plastic straw-a diminutive item used briefly before being thrown away- cause so much damage? For starters, it easily finds its way into oceans due to its lightweight nature. Once there, it does not biodegrade. Instead, it slowly fragments into smaller and smaller pieces known as microplastics, which are  frequently mistaken for food by marine animals.
+
+​	Secondly, it can't be recycled. Unfortunately, most plastic straws are too lightweight to make it through mechanical recycling sorters, so they end up in landfills and waterways and , eventually , out oceans , explains Dune Ives, executive director of Lonely Whale. The  nonprofit facilitated the successful Strawless in Seattle marketing campaign supporting the Strawless Ocean initiative.
+
+​	In the United States, we dispose of millions of plastic straws each day. In the UK at least 4.4 billion straws are estimated to be thrown away annually. Hotels are some of the worst offenders Hilton Waikoloa Village, which became the first resort on the  island of Hawaii to eliminate plastic straws eearlier this year , used more than 800000 straws in 2017.
+
+​	Of course, straws are just part of the monumental waste that goes into our  oceans. Over the last 10 years, we have produced more plastic than in the whole of the last century, and 50 percent of the plastic we use is single-use and is immediately thrown away, says Tessa Hempson, opersatons manager for Oceans Without Borders, a newly launched foundation from luxury safari company & Beyond. One million seabirds and 10000 marine mammals are killed annually from plastic in our oceans . Forty-four percent of all seabird species, 22 percent of whales and dolphins, all sea turtle species, and a growing list of fish species have been documented with plastic in or around their bodies.
+
+​	But now, the plastic straw has finally started to become an endangered species itself , with some cities in the United States banning them, and some  countires limiting single-use plastic items, which include straws. Belize, Taiwan, and England are among the latest countries to propose bans.
+
