@@ -1898,3 +1898,17 @@ experienced a huge transformation since the opening of Picasso museum in Malaga.
 
 ​	But now, the plastic straw has finally started to become an endangered species itself , with some cities in the United States banning them, and some  countires limiting single-use plastic items, which include straws. Belize, Taiwan, and England are among the latest countries to propose bans.
 
+# Can People Really Mistake a Bear for a Dog, as This Family Claims?
+
+> Obvious differences set wild animals apart from domesticated ones, but mix-ups happen more often than you might think.
+
+​	This week, news of a  family in China who had allegedly thought they had adopted a Tibetan mastiff was circulating after it was revealed that the dog was, in fact, an Asistic black bear. The family , who  had raised the bear for two years on Boxes of fruit and buckets of noodles, told local media they couldn't figure out why the animal kept growing, and were reportedly surprised to learn of its true identify.
+
+​	Perhaps surprisingly, this sort of mix-up happens fairly often. There are other stories of people who have taken in animals thinking they're domesticalted, only to realize the animals are wild creatures. Earlier this month , a woman handed over a fox to a Chinese zoo after raising it as a Japanese spitz for nearly a year. In April, National Geographic reported on a man who had taken a leopard cat from the wild after apparently mistaking it for a domestic kitten.
+
+​	However,it's hard t mistake wild animals for domesticated ones, experts say. Lynn Cuny, founder and president of Wildlife Rescue & Rehabilitation in San Antonio, says young wild animals have a different look and smell to them compared to domesticated pets. Wild animals will be more scared and anxious in unfamiliar environments with humans than their domesticated counterparts might be.
+
+​	You never think you're hearing a dog or a puppy you hear a bear, Cuny says. My first reaction to this is that there's something more going on here than just an honest mistake. This should never happen.
+
+​	If a person is tied up in a controversial situation with animals , saying they mistook a wild animals for a domesticated one could be a way out. Just this month, a woman in San Antonio was issued a criminal citation after she admited lying about finding a pair of bobcat kittens in an alleyway. In Texas, there is a ban on owning exotic animals like bobcats.
+
