@@ -1912,3 +1912,25 @@ experienced a huge transformation since the opening of Picasso museum in Malaga.
 
 ​	If a person is tied up in a controversial situation with animals , saying they mistook a wild animals for a domesticated one could be a way out. Just this month, a woman in San Antonio was issued a criminal citation after she admited lying about finding a pair of bobcat kittens in an alleyway. In Texas, there is a ban on owning exotic animals like bobcats.
 
+# A Third of Protected Areas Face Human Pressure—What Does it Mean?
+
+> Protected areas are created to conserve biodiversity, and a new study questions how well they're doing their job.
+
+​	Protected areas are a tool used by environmentalists to protect resources and biodiversity. By officially cordoning off parks, preserves, and wildlife sanctuaries, natural habitats and species can flourish.
+
+​	But a new report in the journal Science found that a third of those protected areas are under intense pressure from  human encroachement.
+
+​	Globally, there are 20000 protected areas that range in size , but six million square kilometers of that faces environmental pressure from agriculture, encroaching human settlement, roads, light pollution , rail,and infrastructure development on waterways.
+
+​	Researchers looked at the human footprint, a global map showing these pressures first published in 2016 , and compared where these footprint treaded over protected areas. One of the study's authors, James Watson, is  from the Wildlife Conservation Society, a conservation group that strives to protect wildlife. He says threats to critical species and natural resources are compromised by this growing human encroachment.
+
+​	These's a good chance the biodiversity crisis will be  exacerbated, said Watson in a press release. He's referring to what  scientists are increasingly saying is a  dangerous decrease in the world's biodiversity. When biodiversity decreases, it has cascading effects.
+
+​	For example, in the US fewer past protections for predators like bobcats were linked to the increase in lyme disease. Researchers found that, as predator populations decline, deer populations increase, providing more transient hosts for the blood-sucking ticks that carry lyme and other diseases.
+
+​	It's a crisis that scientists like renowned ecoligist  EO Wilson have tried to address by advocating for more fully protected areas that allow biodiversity to thrive . Wilson ambitiously called for  protecting half the terrestrial Earth last October.
+
+​	The study's authors say their findings are a wake-up call, not only to rethink how biodiversity is protected , but also to revise plans to meet stadnards set by the  Convention on Biological Diversity. The 1992 treaty mandate that its 196 signing parties must take steps toward ensuring biological diversity by preserving resources.
+
+​	Whether the world can actually meet those goals is now in question.
+
