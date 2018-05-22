@@ -1934,3 +1934,31 @@ experienced a huge transformation since the opening of Picasso museum in Malaga.
 
 ​	Whether the world can actually meet those goals is now in question.
 
+# A Sleeper Hit in Los Angeles?
+
+> The city's sormerly rundown downtown has seen an influx of high-end  housing , shops , restaurants and bars. Enter, the hotels.
+
+​	ABOUT TWO DECADES ago, downtown Los Angeles was gritty and down  out. But between 1999 and 2015, 24 billion was invested in the neighborhood , and the area blossomed: More than 700 businesses moved in , Now the trendy hotels are arriving.
+
+​	Take the four-month-old NoMad Los Angeles , from the Sydell Group . Located on the corner of 7 thand Olived streests, the first offshoot of the New York flagship is housed in Giannin Place-formerly the Bank of Italy —with Italian —inspired interiors by Frenchman Jacques Garcia. The property has 441 rooms and suites, a library, a rooftop pool and a food -and - beverage program by chef Daniel Humm and restaurateur Will Guidara .
+
+​	Meanwhile ,on South Santa Fe Avenue and Bay Street, the Soho Warehouse ,an outpost of the Soho House club that was still under construction at press time , will also have guest rooms. These two follow in the footsteps of such hipster hotels as downtown pioneer the Ace Hotel Downtown Los Angeles, which opened in 2014, and another Sydell Group property, the year-old Freeheand Los Angeles.
+
+​	But will people choose to stay downtown, especially when LA's hotel scene is upping the ante elsewhere? The Waldorf Astoria Beverly Hills , for example in June with 170 rooms and suites at the perfectly positioned intersetion of Wilshire and Santa Monica boulevards. Plus, its rooftop bar, with a menu by chef Jean-Georges Vongerichten is a hit.
+
+​	Expect a downtown migration  at least to the NoMad. Because the hotel has a card to play that trumps the adage location, location, :It recruited Philip Pavel, the Chateau Marmont Hotel's managing director of 21 years, to run the property. He's brought with him a loyal following, therefore surely proving the other saying that it's not about what you know but who you kown—which rings particularly true in LA.
+
+# Leopard's Playful Bite Could Have Dangerous Consequences
+
+> While on safari, a tourist had an encounter with a leopard that was far too close for comfort.
+
+​	There was danger afoot in Botswana's Okavango Delta. While on safari, a tourist was riding in a vehicle when he was approached by a curious young leopard—which proceeded to bite and play with his shoe. This encounter ended without serious injury or death. But experts warn that the result could have been different.
+
+​	When the leopard approached the vehicle , the tracker responsible for the safety of the tourist allegedly gave the instruciton to remain still, so as not to startle the animal. The leopard jumped partway into vehicle, scratched the leg of the tourist , and pawed and bit at his shoe.
+
+​	After viewing the clip, National Geographic explorer and big cat expert Craig Packer, said, The driver should have started the engine the instant the leopard came up to the car. Allowing the leopard to approach the gust like that was incredibly irresponsible . If the leopard starts to interact with people on a regular basis, someone is going to get hurt and the leopard will have to be destroyed.
+
+​	When the vehicle was finally started, the sound of the engine scared the big cat away from the car.
+
+​	This encounter may illustrate the fine line trackers and  safari guides have to toe between guset experience and long-term relationships with the animals. On the one hand, if a guide made a habit of immediately scaring off the animals near their vehicle, then could displease tourists and eventually lose their source of income . But if a leopard approaches a vehicle  without negative feedback, it may continue the behavior in the future and eventually attack someone.
+
