@@ -1962,3 +1962,19 @@ experienced a huge transformation since the opening of Picasso museum in Malaga.
 
 ​	This encounter may illustrate the fine line trackers and  safari guides have to toe between guset experience and long-term relationships with the animals. On the one hand, if a guide made a habit of immediately scaring off the animals near their vehicle, then could displease tourists and eventually lose their source of income . But if a leopard approaches a vehicle  without negative feedback, it may continue the behavior in the future and eventually attack someone.
 
+# Pets of Nat Geo: Meet Our Staffers' Best Friends
+
+> In honor of National Pet Month, we highlight the animal friends that help power our yellow border.
+
+​	There's no question Americans love their pets; about 78 million dogs and 85.8 million cats live in homes throughout the United States.
+
+​	You can be sure that the people behind the yellow border have a soft spot for critters too, wild or tame. So ,to celebrate National Pet Month and the launch of our new series Domesticated, we thought we'd look closer to home to highlight the family pets owned by National Geographic staffers.
+
+​	Nat Geo photo editors chose more than 30 animals to bring into the studio in Washington, DC from dogs to cats  to turtles to hamsters  to guinea pigs.
+
+​	All were well behave , even when asked to sit still under harsh lights. The editors then combed through 3000 images to put together the final selection of 25 pictures you see above.
+
+​	Love these pets? Send us photos of your own domesticated pals on YourShot. 
+
+​	And once you're done with the gallery, explore our Domesticatd hub, which explores all things pets, such as pampered ktttens, pricey pet fish, and  captive-bred skunks.
+
