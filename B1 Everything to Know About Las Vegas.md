@@ -2006,3 +2006,26 @@ experienced a huge transformation since the opening of Picasso museum in Malaga.
 
 ​	And then came a request to repair an AIBO.Nippon.com reports that, at first , no one knew exactly what to do , but months of trial and error saw the robodog back on its feet. Soon , A-fun had a steady demand for AIBO repair—which could only be made by canibalizing parts from other, defunct AIBOs.
 
+# Oldest European Tree Found—And it's Having a Growth Spurt
+
+> A Heldreich's pine discovered in southern Italy has been thriving in a remote part of a national park for 1230 years.
+
+​	A craggy pine tree growing in southern Italy is 1234years old, making it the oldest tree in Europe that has been scientifically dated.
+
+​	Moreover, the ancient pine seems to be living it up in its old age, researchers reported last week in the journal  Ecology. Examinations show that the tree had a growth spurt in recent decades, where larger rings were added to its trunk even though many trees in the Mediterranean region have been experiencing a decline in growth.
+
+​	The discovery shows that some trees can survive for centuries even when subjected to extreme changes in climate . This ancient pine, for example , would have germinated in a cold period during Medieval times and then lived through much warmer temperatures, including periods of drought.
+
+​	Studying multi-centenial trees is highly valuable to better predict the future impact of climate change on forest ecosystems, says Maxime Cailleret from the Swiss Federal Institute for Forest, Snow and Landscape Research , who studies tree mortality.
+
+## TURNING TO DUST
+
+​	Gianluca Piovesan from the University of Tuscia and his colleagues came across the elderly Heldreich's pine on a steep, rocky slope high in the mountains of Pollino National Park. While the tree looked very old, the team soonrealized that determing its true age wouldn't be as simple as dating its rings. The central part of the tree, which would have contained the most ancient rings, was missing.
+
+​	The inner part of the wood was like dust—we never saw anything like it, says team member Alfredo Di Filippo. There were at least 20 centimeters of wood missing, which represents a lot of years.
+
+​	The tree's roots were in better shape, so the team decided to see if they could uncover its age using a novel method  that combines a few existing techniques.
+
+​	Although both the trunk and roots of a tree produce annual rings , they can develop at different rates so it's not straightforward to correlate their growth.However, radiocarbon dating samples of its exposed roots allowed the researchers to datermine when the tree germinated . The team was then able to  cross-date ring growth in root and trunk samples to reveal the years missing from the trunk.
+
+​	By joining these two methods, we were able to establish the time frame much more precisely, says Piovesan.
