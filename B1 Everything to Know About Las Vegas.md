@@ -2029,3 +2029,29 @@ experienced a huge transformation since the opening of Picasso museum in Malaga.
 ​	Although both the trunk and roots of a tree produce annual rings , they can develop at different rates so it's not straightforward to correlate their growth.However, radiocarbon dating samples of its exposed roots allowed the researchers to datermine when the tree germinated . The team was then able to  cross-date ring growth in root and trunk samples to reveal the years missing from the trunk.
 
 ​	By joining these two methods, we were able to establish the time frame much more precisely, says Piovesan.
+
+# Why This Frog's Poisonous , Inflatable Backside Is Staring at You
+
+> This South American frog's inflatable rear end puts on quite a show for predators.
+
+​	Humans are froever trying to get their rear ends to look either smaller or bigger, but nothing we do —nothing can make our cabooses as amazing as that of the Cuyaba dwarf frog, or Physalaemus nattereri.
+
+​	Yet this frog's glamorous hindquarters are meant to repel attention,not attract it.
+
+​	We looked into why such a wonderfully weird amphibian is left alone, by both people and predators.
+
+## The Puffy Stare
+
+​	There are about 123 known species of frogs worldwide with warning colors, known as aposematic coloration, on the back or underside of their bodies, says Joao Tonini, a postdoctoral fellow at Harvard University and collaborator Projeto Bromeligenous , a project studying the relationship between Brazil's frogs and bromeliad plants.
+
+​	In some species, such as deadly poison arrow frogs, bright warning colors tell predators, I'm dangerous, don't play with me, says Arturo Munoz Saravia, a doctoral student at the University of Ghent in Belgium and coordinator of the Bolivian Amphibian Initiative.
+
+​	In others, a harmless creature may aim to trick predators into thinking it's dangerous.
+
+​	Either way,one means of looking more intimidating is to sport big spots that look like eyes. That's the tactic of the Cuyaba dwarf frog—native to Bolivia, Brazil, Argentina , and Paraguay —and the Chilean four-eyed frog in the same family, Tonini says.
+
+​	The eyespots help to distractt from the frogs' heads and inflate their bodies, sending predators the message, I'm a bigger animal than you think, so don't eat me Munoz Saravia says.
+
+​	When it's puffed up, the tiny frog may look a good-sized snake to its predators, which include birds, snakes, coatis,or the fringe-lipped or frog-eating bat.
+
+​	If the predator decides to strike anyway, these frogs have a PlanB :position. As it turns out ,they're not just bluffing with their warnings.
