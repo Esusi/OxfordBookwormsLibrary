@@ -2055,3 +2055,17 @@ experienced a huge transformation since the opening of Picasso museum in Malaga.
 ​	When it's puffed up, the tiny frog may look a good-sized snake to its predators, which include birds, snakes, coatis,or the fringe-lipped or frog-eating bat.
 
 ​	If the predator decides to strike anyway, these frogs have a PlanB :position. As it turns out ,they're not just bluffing with their warnings.
+
+# What You Think You Know About Animals? Probably Not Ture
+
+> Unfaithful penguins , blood-red hippos , and randy pandas: In the wild, animals are not always how we imagine them.
+
+​	From Aristotle to Disney, humans have interpreted animal behavior as a reflection of our own moral and cultural values, seeing sloths as sinful or penguins as paragons of family values. In her hilarious new book, the Unexpected Truth About Animals, British TV presenter Lucy Cooke upends some of these myths and shows that what actually goes on in the natural world is a far cry from these imaginary projections.
+
+​	Speaking from New York during her book tour, she explains how evangelical Christians got it wrong about penguins; why sloths don't fart; and how pandas need more wild habitat, not captive breeding programs ,to survive.
+
+## Your book is full of scientific facts, many of which are laugh-out-loud funny-of course, it isn't just what animals do that is humorous , but what scientists did Tell us about the father of field biology, William Beebe, and his swimming experiments with sloths.
+
+​	He's one of my favorite scientists. William Beebe was the godfather of field ecology, and he pioneered proper observation of animals in their natural habitats. He got close to the truth about animals, but his methods were, shall we say, unconventional. He was particularly fascinated by sloths, which had up until that point been given a hard time. The conquistadors described them as the stupidest animals in the world. Since then , the sloth has been horrendously misunderstood and saddled with a name that references sin. Then Beebe came along and abserved them in the jungles of South America. He discivered , for instance, that sloths are extremely good at swimming, though he did this by hurling them into a river.
+
+​	Sloths can actually swim three times faster than they can crawl on land. There are two reasons why they're such swimmers, which are both freaks of evolution. One is that they have extra neck vertebrae. All animals , giraffes included, have the same unmber of neck vertebrae, but sloths have two or three extra, actually ribs that have been co-opted. This enables them to keep their heads above water as they're doing the doggie paddle.
