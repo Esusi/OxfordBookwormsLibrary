@@ -2069,3 +2069,59 @@ experienced a huge transformation since the opening of Picasso museum in Malaga.
 ​	He's one of my favorite scientists. William Beebe was the godfather of field ecology, and he pioneered proper observation of animals in their natural habitats. He got close to the truth about animals, but his methods were, shall we say, unconventional. He was particularly fascinated by sloths, which had up until that point been given a hard time. The conquistadors described them as the stupidest animals in the world. Since then , the sloth has been horrendously misunderstood and saddled with a name that references sin. Then Beebe came along and abserved them in the jungles of South America. He discivered , for instance, that sloths are extremely good at swimming, though he did this by hurling them into a river.
 
 ​	Sloths can actually swim three times faster than they can crawl on land. There are two reasons why they're such swimmers, which are both freaks of evolution. One is that they have extra neck vertebrae. All animals , giraffes included, have the same unmber of neck vertebrae, but sloths have two or three extra, actually ribs that have been co-opted. This enables them to keep their heads above water as they're doing the doggie paddle.
+
+# This Graphic Maps the Greenest Modes of Transportation
+
+> What's the most enery efficient way to go from New York to Toronto? You might be surprised.
+
+​	There are many ways to go from here to there.
+
+​	And the mode of transportation we choose can have a big impact. It can affect time, comfort,cost, and other factors. But how we travel can also have a big impact on the planet.
+
+​	In the US, the transportation sector is responsible for about 28 percent of total greenhouse gases, according to the EPA. That's the largest contributor, just edging out the energy sector.
+
+​	And although cleaner alternatives are coming on board, such as electric cars and biofuels, over 90 percent of the fuel used for transportation in the US remains derived from petroleum.
+
+​	In this graphic, we break down the most efficient ways to travel on a typical trip:
+
+## EFFICIENCY RISING
+
+​	Lighter materials, improved aerodynamic design, and more fuel-efficient engines have increased the distance each mode can travel on one gallon of fuel.
+
+# 5 Giant Salamander Species Identified--And They're All in Danger
+
+> A new study shows that there are more species of Chinese giant salamander than previously thought, but most of those could go extinct in the near future.
+
+​	The Chinese giant salamander does not fit the traditional definition of cute. Growing to nearly six feet long and weighing roughly 140 pounds, the flabby creatures are the largest amphibians in the world. Their beady, lidless eyes peer out from broad, flat heads with blunt snouts, and their mud-colored bodies have short limbs and long tails. The species's slimy skin is not pleasant to pet , either.
+
+​	With these characteristics, the amphibians are certainly not as charismatic as pandas and other fluffy manmals, but they're just as crucial to a healthy ecosystem. In two studies published last week, scientists found that instead of one species --as previously thought --there are actually roughly half a dozen species of Chincese giant salamander.
+
+​	We weren't surprised to find two or three, says Bob Murphy, senior curator of herpetology at the Royal Ontario Museum's Centre for Biodiversity and Conservation Biology, and corresponding author on one of the papers. we were surprised at just how much diversity was there. At least five and up to eight species, that was quite a shock.
+
+​	However, humans might have already driven some of those species toward extinction. In their endemic habitat of rocky mountain streams and lakes in China , the critically endangerd salamanders are threatened by poaching and human intervention.
+
+​	The bigger issue, I think, is trying to change ideas about what conservation needs to happen for these iconic animals, Murphy says.
+
+​	Chinese giant salamanders are rare in the wild but raised on farms to be sold as a luxury food item. A four-pound salamander can go for up to 1500 in some markets, and they're prepared in soups, stews , and other dishes.
+
+​	Traditionaly, the Chinese Ministry of Agriculture has called for farmers to release a portioin of their salamanders into the wild in an attempt at conservation. In the last decade, more than 72000 have been let go.
+
+​	But this conservation technique is flawed, experts say. When farmers release captive-bred salamanders, the animals are not genetically screened or looked at for diseases. They  can breed with other salamanders in the wild, and the resulting offspring could  have too much genetic variation. This diversity could  be harmful to the species.
+
+​	The system begins to break down, and then you end up with lower developmental rates and a bunch of inefficient salamanders that can result in a population loss, Murphy says. You mix all of that together and the salamanders are lost.
+
+# See the Festive Chaos of India's All-Day Picnics
+
+> Photographer Arko Datto spent four years documenting the winter marathons of eating and drinking.
+
+​	In east India, the winter months are more inviting than those in the summer. Between December and February, the typically oppressive heat relents, and those looking to enjoy the outdoors travel to one of the region's many rivers or miles of coastline for a day of dancing, eating, and drinking.
+
+​	Groups of friends and entire familes hire buses to take them long distances in search of the perfect picnic spot, along with copious amounts of food and  alcohol. Once they establish a camp, the groups-sometimes joined by a professional chef--will blast Hindi and Bengali pop music and cook freshly slaughtered chicken with rice over an open fire, accompanied by whiskey and rum. On the riverbanks and beaches, the schedule for the day tends to be little more than playing games and dancing to exhaustion.
+
+​	Photographer Arko Datto is from Calcutta and observed these festivites early in life , though his family never participated. His work photographing this annual tradition was a four-year-long endeavor that took him to popular river destinations around Calcutta.
+
+​	His interest in these picnics was sparked after observing a tragic indident in which a boat carrying a group of revelers capsized. As Datto tells it, the boat was transporting more people than it could carry through a deep  part of river when it suddenly buckled under the weight. While he doesn't remember how many people drowned, the event pushed him to more actively immerse himself in decumenting winter picnics.
+
+​	For an event so rooted in revelry, Datto also wanted capture what he saw as the events' dark underpinnings. He hoped his images would reflect some larger social issues,such as the gender disparities in a culture where crimes against women have steadily risen in the past five years.
+
+​	In public spaces, it's very diffcult for men and women to come together even for something as simple as a picnic, said Datto. Groups of young adults, most often men, spend the full day drinking. Drunken brawls can become as  a result. The idea is to get trashed, Datto observed. Women who attend without their familes tend to tread lightly as a result.
