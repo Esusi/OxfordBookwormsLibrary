@@ -2125,3 +2125,19 @@ experienced a huge transformation since the opening of Picasso museum in Malaga.
 ​	For an event so rooted in revelry, Datto also wanted capture what he saw as the events' dark underpinnings. He hoped his images would reflect some larger social issues,such as the gender disparities in a culture where crimes against women have steadily risen in the past five years.
 
 ​	In public spaces, it's very diffcult for men and women to come together even for something as simple as a picnic, said Datto. Groups of young adults, most often men, spend the full day drinking. Drunken brawls can become as  a result. The idea is to get trashed, Datto observed. Women who attend without their familes tend to tread lightly as a result.
+
+# Get Lost on Italy's Sun-Kissed Mediterranean Coast
+
+> Quaint villages and enchanting views have drawn people to this stunning coast for centuries.
+
+​	Italy's Amalfi Coasts a classic Mediterranean landscape, a sensual blend of both natural and cultural wonders. The breathtaking trrain includes dramatic coastline topography scattered with terraced vineyards, orchards, and pastures often with enchanting views of the vibrant waters below.
+
+​	Kind climate, abundant resources, and natural beauty heave drawn people to this coast for many centuries, and the Greeks, Romans,Normans, Saracens, Arab-Sicilians, and many others have left their mark. Amalfi communities often cluster along cliffs, their terraces blending into the rock to add their own picturesque charm to the natural beauty of the coast. Upon closer inspection , towns like Amalfi and Ravello are home to many examples of artistic and architectural excellence--not a surprise, since this stretch of the Sorrento Peninsula has long attracted famous artists of all stripes.
+
+​	Amalfi itself thrives as a picturesque tourist center but in the 11th and 12th centuries the city centered the Amalfi Maritime Republic and was a naval power to be reckoned with throughout the Mediterranean. Amalfi's ports also saw extensive trade with North Africa, and the city retains cloisters of Arab-Sicilian architecture throughout, as well as the Arsenale --a partially preserved medieval shipyard from a glorious era.
+
+​	In Paestum, columned temples to Poseidon, Hera, and Athena stand in what was, from the seventh century BC the Greek city of Poseidonia . These breathtaking structures are among the best preserved of their kind to be found anywhere in the world.
+
+​	Until the 1800s the coast's steep terrain meant that overland access to the region was possible only by mule. While many oases of quiet can still be found here, particularly away from tourist centers, the Amalfi Coast has changed irreersibly since then. But echoes of far more distant eras remian, including ancient cathedrals, gardens , and Roman villas like Anacapri's Villa di Damecuta, possible built by Tiberius . The stunning natural landscape and historical sites earned the Costiera Amalfitana World Heritge status in 1997.
+
+​	One of the most enjoyable things to do on the Amalfi Coast is to simply find a spot where you can soak it all in. Among the top locations is Monte Solaro, a BB in Anacapri with stunning views of the twin bays Salerno and Naples.
