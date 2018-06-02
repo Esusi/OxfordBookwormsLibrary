@@ -2141,3 +2141,34 @@ experienced a huge transformation since the opening of Picasso museum in Malaga.
 ​	Until the 1800s the coast's steep terrain meant that overland access to the region was possible only by mule. While many oases of quiet can still be found here, particularly away from tourist centers, the Amalfi Coast has changed irreersibly since then. But echoes of far more distant eras remian, including ancient cathedrals, gardens , and Roman villas like Anacapri's Villa di Damecuta, possible built by Tiberius . The stunning natural landscape and historical sites earned the Costiera Amalfitana World Heritge status in 1997.
 
 ​	One of the most enjoyable things to do on the Amalfi Coast is to simply find a spot where you can soak it all in. Among the top locations is Monte Solaro, a BB in Anacapri with stunning views of the twin bays Salerno and Naples.
+
+# Discover the Best of Kansas City
+
+> Journey to the banks of the mighty Missouri River.
+
+​	Kansas City is friendly and laid-back, but don't be fooled by its low-key attitude-the city pulses with an upbeat and creative energy.
+
+## NATURAL WONDER
+
+​	Kansas City was born and raised on the banks of the mighty Missouri River. To explore a section of it, rent a B-cycle at the corner of Fourth and Delaware, and then follow the Riverfront Heritage Trail, a paved path that connects the Missouri and Kansas Heritage Trail, a paved path that connects the Missouri and Kansas sides of the city to the historic Kaw Point, where famous explorers Lewis and Clark camped in 1804.
+
+## ARCHEOLOGICAL SITE
+
+​	A treasure trove of pre-Civil  War artifacts lay hidden 45 feet below a Kansas cornfield until an amateur archaeologist redisocered the final resting  place of the Arabia, a staeamboat the sank with 200 tons of  cargo aboard in 1856. Artifacts, including the world's oldest pickles and mule skeleton, were excavated and placed on display at the Arabia Steamboat Museum.
+
+## CULTURAL EXPERIENCE
+
+​	Kansas City produces some of the best jazz in the country, its epicenter at 18th and Vine is known as the Jazz District. The historic African-American community gave rise to a distincitive KC-style  sound, heavily influenced by both blues and ragtime genres. The American Jazz Museum is a good starting place, but don't miss the opportunity to see live performances at one of the city's many jazz clubs.
+
+## BEST DAY TRIP
+
+​	Weston thrived as a steamboat port in the mid 1850s , but a massive flood in 1881 shifted the Missouri River to the west leaving the town high and dry. Now it's an agritourism destination with wineries, farmstead cheese, pick-you-own apples and farm -to-table restaurants. Get a drink at O'Malley's 1842 Pub, housed in an atmospheric underground cellar below the Weston Brewing Company.
+
+## OFF THE BEATEN PATH 
+
+​	While the Bule Room jazz club  at the American Jazz Museum gets a lot of atention, not enough people know about the nearby Mutual Musicians Foundation, where musicians have gathered  since the 1930s for jam sessions that last through the early morning hours. Located in the 18th and Vine historic Jazz District, the building is on the National Register of Historic Places.
+
+## MOST ICONIC EXPERIENCE
+
+​	For decades, the Country Club Plaza has been the go-to place to take out-of -towners. Take a stroll through the outdoor shopping and enterainment zone to admire the Moorish architecture, reminiscent of KC's sister city of Seville, Spain. Besides the tile-covered towers, ornate ironwork and colorful mosaics, you'll find majestic fountains that contribute to KC's reputation as The City of Fountains.
+
