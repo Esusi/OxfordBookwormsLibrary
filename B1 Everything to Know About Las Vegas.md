@@ -2172,3 +2172,44 @@ experienced a huge transformation since the opening of Picasso museum in Malaga.
 
 ​	For decades, the Country Club Plaza has been the go-to place to take out-of -towners. Take a stroll through the outdoor shopping and enterainment zone to admire the Moorish architecture, reminiscent of KC's sister city of Seville, Spain. Besides the tile-covered towers, ornate ironwork and colorful mosaics, you'll find majestic fountains that contribute to KC's reputation as The City of Fountains.
 
+# Why Mongooses All Give on the Same Day
+
+> These small, sleek mammas  have some intriguing quirks in the animal kingdom--like male childcare.
+
+​	The motto of all the mongoose family  is , Run and find out, author Rudyard Kipling explains in his 1894 book Rikki-Tikki-Tavi.
+
+​	In true mongoose fashion, then, we decided to investigate these charismatic African and Asian carnivores, thanks to a new study on their unique child-care system.
+
+## ESCORT SERVICE
+
+​	The banded mongoose of sub-Saharan Africa is the only known whose pups get a mentor. Unrelatd adults, called escorts, feed, carry, and educate new pups. These mongoose mentors are often male.
+
+​	The same pup will stay with the same adult day after day for about two months unitl the offspring can find its own food, says Michael Cant, an ecologist at the University of Exeter's Penryn Campus in Wales.
+
+​	How these bonds form is a bit mysterious, but it seems to be a two-way street, Cant says. A pup will follow an adult around , and the adult occasionally stops to check that the right pup is following. Some pups follow only one adult , while others will follow more than one.
+
+​	Cant co-authored the new study showing that young mongooses learn to forage from these mentors, acquiring behaviors that will last a lifetime.
+
+​	Escorting may have evolved because learning diverse methods of foraging can reduce competition within the large groups that banded mongooses live in . The study also argues that cultural learning is not restricted to primates and cetaceans, but is actually very pervasive in the wild , Cant says.
+
+​	Cant has been studying mongooses for 23 years, and says that part of their charm is they reliably do everything wrong --confounding conventional wisdom about animal behavior.
+
+## GROUP UGH
+
+​	Mongooses, which live in groups, all give birth on the same day.
+
+# Why Today is the Golden Age for Dinosaur Discoveries
+
+> As more countries open their borders to paleontology, a new generation of dino hunters is uncovering almost one new species a week.
+
+​	Illinos-born Srephen Brusatte is one of the stars of modern paleontology. A former National Geographic grantee, he has discovered 10 new dinosaur species. He has also led groundbreaking scientific studies that have rewritten the history of these magnificent creatures which , thanks to Hollywood and countless children stories , haunt out imaginations today like never before.
+
+​	In his new book, The Rise And Fall Of The Dinosaurs, Brusatte tells the epic tale of the dinosaurs' rise to dominance and extinction, taking us on a thrilling journey back in time to the Mesozoic Era, and across the world to the far-flung places he has hunted for fossils, from Argentina, to China, to the American Southwest.
+
+​	When we caught up with him by phone at the University of Edinburgh, in Scotland, where he is now a fellow , he explained how new technology is revolutionizing our understanding of Tyrannosaurus rex, why China is a hotspot for fossil dinosaur, and how many of today's paleontologists are women.
+
+## Let's jump right in with the dinosaur that has captured our imaginations more than any other. Give us your unauthorized biography of T. rex and explain how new technologies are enhancing our understanding of The King of The Dinosaurs.
+
+​	T.rex is surely the most famous dinosaur of all. It's an icon. I think you could show a picture of T.rex to pretty much anybody on the planet and they're going to know what it is. There 's something about its body, the huge head, tiny little arms, long tail, muscular legs, everybody recognizes it. It's the size of a bus, about 13 meters, or 42 feet, long, weighed 7 or 8 tons, and could crush through the bones of its prey, it had such strong bite forces.
+
+​	To me , it's the epitome of dinosaur success. I don't think anybody can look at a T. rex and see dinosaurs as failures or evolutionary dead-ends. And  so many people animals . It is a Mesozoic muse for a lot of scientists, me included.
