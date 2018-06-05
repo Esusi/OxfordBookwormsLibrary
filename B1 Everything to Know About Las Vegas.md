@@ -2213,3 +2213,27 @@ experienced a huge transformation since the opening of Picasso museum in Malaga.
 ​	T.rex is surely the most famous dinosaur of all. It's an icon. I think you could show a picture of T.rex to pretty much anybody on the planet and they're going to know what it is. There 's something about its body, the huge head, tiny little arms, long tail, muscular legs, everybody recognizes it. It's the size of a bus, about 13 meters, or 42 feet, long, weighed 7 or 8 tons, and could crush through the bones of its prey, it had such strong bite forces.
 
 ​	To me , it's the epitome of dinosaur success. I don't think anybody can look at a T. rex and see dinosaurs as failures or evolutionary dead-ends. And  so many people animals . It is a Mesozoic muse for a lot of scientists, me included.
+
+# Actor Adrian Grenier Is Cutting Out Plastic. Here's How You Can,Too
+
+> The Entourage star and UN Ambassador started with plastic straws and is  now working on a plastic-free house.
+
+​	This story is part of Planet or Plastic? our multiyear effort to raise awareness about the global plastic waste crisis. Learn  what you can do to reduce your own single-use plastics, and take your pledge.
+
+​	Actor and  environmental  activist Adrian Grenier is perhaps best known for his lead role in the HBO series Entourage. But he has also made a name for himself at the forefront of the international fight to reduce the world's reliance on single-use plastics, in order to decrease harm to the ocean , wildlife , and human health.
+
+​	Grenier has been working on educating the public about the problems with plastic straws and other throwaway items through his Lonely Whale foundation. He is also a celebrity ambassador for the United Nations World Environment Day, which takes place Tuesday. Grenier is helping the UN spread the word about the impacts of single-use plastic, which is the focus for this year's annual World Environment Day.
+
+​	I spoke  with Grenier about his work on plastic and why he cares so much about it.
+
+## How did you get into the issue of plastic pollution?
+
+​	I've been doing environmental work for some time, but I was ultimately led to the ocean as my focus when I realized that the ocean is probably the most underserved aspect of the environment; we sometimes forget it's there, and yet,the ocean is 70 percent of our planet.
+
+## We have a lot of photographers who work under water, and they always say the same thing: that it's literally that people don't see what's going on.
+
+​	We really need to get to the root of the problem, and it really does circle back to our relatonship to convenience, and our sense that things are disposable, which they aren't.
+
+## What are some actionable things people can do?
+
+​	An the Lonely Whale foundation we came up with perhaps the lowest hanging plastic , which is the single-use plastic straw. We say:look , just do one thing; try it on; see how it feels , and see how easy it can be . I think the straw is not only symbolically a great first step, a gateway if you will, but  also significant because it is the smaller plastics in particular that we want to  prevent.
