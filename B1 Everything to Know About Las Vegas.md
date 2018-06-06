@@ -2237,3 +2237,34 @@ experienced a huge transformation since the opening of Picasso museum in Malaga.
 ## What are some actionable things people can do?
 
 ​	An the Lonely Whale foundation we came up with perhaps the lowest hanging plastic , which is the single-use plastic straw. We say:look , just do one thing; try it on; see how it feels , and see how easy it can be . I think the straw is not only symbolically a great first step, a gateway if you will, but  also significant because it is the smaller plastics in particular that we want to  prevent.
+
+# This Invention Helps Deep-Dwelling Fish Journey to the Surface
+
+> Without the small , pressurized chamber, a fish's swim bladders likely wouldn't survive the ascent out of water.
+
+​	LYING IN THE space 650 to 3200 feet below the surface of the ocean is the mesopelagic zone. It's here that sunlight begins to fade away, earning it the nickname the twilight zone.
+
+​	This twilight zone is home to critical ecosystems like coral reefs that are home to the diverse fish species that maintain them . It's a depth that  humans can't easily access. Remotely operated vehicles and invasive techniques have previously been used to study the complex systems.
+
+​	But a new invention is helping divers fish to the surface, where they can be more easily studied.
+
+## A Dangerous Swim
+
+​	Invented by scientists at the California Academy of Sciences and the Monterey Bay Aquarium, the Submersible Chamber of Ascending Specimens, or SubCAS, is helping bring fish safely to the water's surface. The cylinder is just two feet long and contains just under a handful of fish at a time. A pressurized chamber helps ensure that  fish living at intense depths don't sustain internal damage on their journey out of the water.
+
+​	Before the SubCAS , hand-collecting and surfacing live fishes involved the invasive process of needing a hole in their gas-filled swim bladders to prevent over-expansion, says Bart Shepherd, senior director of the academy's Steinhart Aquarium, in a press release.
+
+​	Most bony fish contain a gas-filled organ called a swim bladder that helps them maneuver through the water without floating to the top or sinking to the bottom.
+
+​	When twilight zone-level fish are quickly brought to the surface of the water, it can cause that swim bladder to ruture.
+
+​	The chamber works to correct repid change in pressure.
+
+## How It Works
+
+​	When divers reach 180 feet  in their ascent , they transfer fish from the jars in which they were collected to a small housing , which they then blow an air bubble into. The chamber is then sealed with the air bubble inside it, and for the remainder of the ascent , the bubble helps maintain greater pressure.
+
+​	At 100 feet, the fish are then handed off to divers who take them to above-ground facilitices, where the fish are released in a controlled decompression.
+
+​	According to the California Academy of Sciences, the method has been extremely successful. Fish are sometimes transported to different facilites via plane, but the different pressure, from 500 feet bolow sea to 35000 feet in the air, has been mannageable , say researchers.
+
