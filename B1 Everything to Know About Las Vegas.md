@@ -2286,3 +2286,24 @@ experienced a huge transformation since the opening of Picasso museum in Malaga.
 
 ​	Minnie ended up the Kangaroo Sancturary, in Alice Springs, Australia. Handlers there have fostered many orphaned joeys. They know what kind of special milk a joey needs when she's three months old, and what materials make for the best surrogate pouches. In video shot last December,Minnie tumbles into one of their homemade pouches and snuggles with one of her caretakers.
 
+# Vintage Photos Show Touching Moments of Fathers Worldwide
+
+> These dads carried children on their soulders, brought them along on trips to market, and shared moments of joy--much like fathers do today.
+
+​	As the US prepares to celebrate Father's Day on the third Sunday of June, these photos of dads around the world show that a father's love is universal.
+
+​	Unlike Mother's Day, which began to be widely observed in 1980 and was quickly recognized as an official national hiliday by President Woodrow Wilson in 1914, Father's Day took several decades to be declared a national  holiday. It was first celebrated in 1910 in Washington state but wasn't officially recognized until 1972 , when it was acknowledged by President Richard Nixon.
+
+​	Studies have shown that beyond the ubiquitous parenting experiences of wiping away tears over a skinned knee or cheering on the sidelines of a sports game, dads can have specific and important impacts on the lives of their children.
+
+​	Fathers who do their share of work at home can help shape their daughters' carrer goals. They can help their children learn to evaluate risk,solve problems , and learn limits more efficiently through creative rough-and-tumble play in a safe environment. And the foods they eat can even influence the health of their future children.
+
+# Marine Protected Areas Are important, But Are They Working?
+
+> The world won't meet international ocean conservation targets by 2020, so a team of scientists is looking at what's next for saving our seas.
+
+​	You Can Think of a marine protected area like a boost of viatmin C taken at the onset of a cold. It may not cure you, but it can help you bounce back.
+
+​	A protected ecosystem tends to be more resistant to disturance and it's more resilient --it comes back faster, says Jane Lubachenco, now a marine ecoligist at Oregon State University and fromally the administrator of the National Oceanic and Atmospheric Adminstration. it's not unlike your body. If you are immmunocompromised , you're much more likely to come down with a cold or flu.
+
+​	These protected ocean spaces, when defended well, won't solve all the problems in the world's oceans, but they might give us a fighting chance against afflictions like  climate change or overfishing. Staties have shwon that completely closing a portion of the ocean off to activities like fishing and drilling helps keep wildlife populations healthy and increases biodiversity.
