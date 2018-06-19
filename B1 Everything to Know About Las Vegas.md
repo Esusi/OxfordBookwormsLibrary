@@ -2307,3 +2307,15 @@ experienced a huge transformation since the opening of Picasso museum in Malaga.
 ​	A protected ecosystem tends to be more resistant to disturance and it's more resilient --it comes back faster, says Jane Lubachenco, now a marine ecoligist at Oregon State University and fromally the administrator of the National Oceanic and Atmospheric Adminstration. it's not unlike your body. If you are immmunocompromised , you're much more likely to come down with a cold or flu.
 
 ​	These protected ocean spaces, when defended well, won't solve all the problems in the world's oceans, but they might give us a fighting chance against afflictions like  climate change or overfishing. Staties have shwon that completely closing a portion of the ocean off to activities like fishing and drilling helps keep wildlife populations healthy and increases biodiversity.
+
+# How Latinos Are Shaping America's Future
+
+> They're the focus of the immigartion debate. But across the nation, Latinos are rising to power and offering a  glimpse  of what's ahead.
+
+​	Ismale Fernandez Grew up in Wilder, Idaho, a town of 1700 souls surrounded by tall hop plants and stubby alfalfa fields.
+
+​	He lived with his grandparents in a home built on land where his  grandfather, aVietnam War veteran, once picked beets and onions.
+
+​	When Fernandez was 19, he elected to the city council. On his frist day in office , in 2015, he stepped up to the short dais in Wilder City Hall and sat alongside the four other council members. A local reporter noticed something no one else had: There were five Spanish surnames on the council members' nameplates. Almazan. Rivera. Godina. Garcia. Fernandez. The story soon went national . For the first time ever in I daho a state where non-Hispanic whites make up 82 percent of the population--voters had elected an all-Latino city council.
+
+​	Born in 1996 to farmworkers with roots in Mexico, Fernandez grew up hearing people  describe him as Latino. The term spread in the last decades of the 20th century as a means of grouping together ethnically diverse people of Hispanic heritage: immigrats from Cuba and Guatemala, US born citizens with roots in Pueto Rico and Peru, and many others.
