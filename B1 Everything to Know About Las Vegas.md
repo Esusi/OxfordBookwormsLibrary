@@ -2319,3 +2319,17 @@ experienced a huge transformation since the opening of Picasso museum in Malaga.
 ​	When Fernandez was 19, he elected to the city council. On his frist day in office , in 2015, he stepped up to the short dais in Wilder City Hall and sat alongside the four other council members. A local reporter noticed something no one else had: There were five Spanish surnames on the council members' nameplates. Almazan. Rivera. Godina. Garcia. Fernandez. The story soon went national . For the first time ever in I daho a state where non-Hispanic whites make up 82 percent of the population--voters had elected an all-Latino city council.
 
 ​	Born in 1996 to farmworkers with roots in Mexico, Fernandez grew up hearing people  describe him as Latino. The term spread in the last decades of the 20th century as a means of grouping together ethnically diverse people of Hispanic heritage: immigrats from Cuba and Guatemala, US born citizens with roots in Pueto Rico and Peru, and many others.
+
+# Some Rivers Are So Drug-Polluted , Their Eles Get High on Cocaine
+
+> Illegal drug residues in the water could be affecting native fish.
+
+​	Critically Endangered Eels hyped up on cocaine could have trouble making a 3700-mile trip to mate and reproduce-new research warns.
+
+​	And while societies have long grappled with ways to cope with the use of illicit drugs, less understood are the downstream effects these drugs might have on other species after they enter the aquatic environment through wastewater.
+
+​	So, in the name of research, scientists pushed cocaine on European ells in labs for 50 days in a row, in an effort to minitor the effects of the experience on the fish.
+
+​	European eels have have complex life patterns, spending 15 to 20 years in fresh or brackish water in European waterways before crossing the Atlantic Ocean to spawn in the Sargasso Sea just east of the Caribbean and the US Eastern Seaboard. While the eels are also farmed for food, the wild population is considered critically endangered by the International Union for  Conservation of Nature due to dams and other waterway changes that block their migrations,overfishing , and different types of water pollution.
+
+​	The eels are vulnerable to trace concentrations of cocaine, particularly in their early lives, according to the researchers of a study published in Science of the total Environment.
