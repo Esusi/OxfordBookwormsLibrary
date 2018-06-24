@@ -2333,3 +2333,20 @@ experienced a huge transformation since the opening of Picasso museum in Malaga.
 ​	European eels have have complex life patterns, spending 15 to 20 years in fresh or brackish water in European waterways before crossing the Atlantic Ocean to spawn in the Sargasso Sea just east of the Caribbean and the US Eastern Seaboard. While the eels are also farmed for food, the wild population is considered critically endangered by the International Union for  Conservation of Nature due to dams and other waterway changes that block their migrations,overfishing , and different types of water pollution.
 
 ​	The eels are vulnerable to trace concentrations of cocaine, particularly in their early lives, according to the researchers of a study published in Science of the total Environment.
+
+# Meet the Bug That Armors Itself With Shells
+
+> The caddisfly is one of many insects that get creative in shielding themselves from predators.
+
+​	We understand the superhero no capes rule-but what about shields?
+
+​	Many insects know the power of this form of stylish protection. For instance , caddisfly larvae, which sometimes measure only a tenth of an inch long, may by the world's tiniest artisans.
+
+​	These aqatic insects, found worldwide, excrete a sticky silk from their mouths and use it to build a hard case from objects in their habitat, which includes stones, leeaves, and shells.
+
+​	The materials and shapes vary according to species and their body shapes, says Kate Boersma, an entomoligist at the University of San Diego.
+
+​	Some make flat , long tubes that look like sleeping bags, and some make spiral caes that look like snail shells, she says.
+
+​	These cases shield against predators, so they roam around like little vacuum cleaners without worrying about being eaten, Boersma, Boersma says.
+
