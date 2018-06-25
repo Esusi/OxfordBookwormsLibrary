@@ -2350,3 +2350,13 @@ experienced a huge transformation since the opening of Picasso museum in Malaga.
 
 ​	These cases shield against predators, so they roam around like little vacuum cleaners without worrying about being eaten, Boersma, Boersma says.
 
+# The 6 Best Places to Stargaze in Australia
+
+> Australia's vast outback is dotted with world-class telescopes, giving tourists an extraordingrary window on nearby planests, stars and galaxies.
+
+​	Want to explore the wonders of the univserse without the light-years of travel and gravity sickness? Welcome to the exciting world of astrotourism, where terrestrial astronmoers and their telescopes take you on a journey to the stars. Australia's clear skies and vast tracts of uninhabited land make it the perfect location for some of the world's most significant astronomical observatories and telescopes-and a great destination for travelers who believe the sky isn't really the limit.
+
+## Parkes Telescope , New South Wales
+
+​	When Neil Armstrong took his first steps on the moon, the Parkes radio telescope was watching. Foundly known as The Dish this 210--fot --wide telescope stands proudly in a grassy paddock that in 1969 was also full of sheep . Localted around 220 telescopes in the southern hemisphere , and has been involved in the discovery of more than half of the 2000 known pulsars . VIsitors can enjoy the mounumental vista from the viewing area, or explore the universe in a high-definition 3D experience while kids complete a scavenger hunt.
+
