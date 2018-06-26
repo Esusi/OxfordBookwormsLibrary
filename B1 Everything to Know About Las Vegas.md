@@ -2360,3 +2360,15 @@ experienced a huge transformation since the opening of Picasso museum in Malaga.
 
 ​	When Neil Armstrong took his first steps on the moon, the Parkes radio telescope was watching. Foundly known as The Dish this 210--fot --wide telescope stands proudly in a grassy paddock that in 1969 was also full of sheep . Localted around 220 telescopes in the southern hemisphere , and has been involved in the discovery of more than half of the 2000 known pulsars . VIsitors can enjoy the mounumental vista from the viewing area, or explore the universe in a high-definition 3D experience while kids complete a scavenger hunt.
 
+# At the World Bodypainting Festival ,the Human Body Is a Canvas
+
+> Body painting has been a medium of expression since the early days of humans and is increasingly being recognized as a fine art form worldwide.
+
+​	In the late 1990s, Austrian Alex Barendregt stumbled across 1970s-era fashion photographs of German model Veruschka covered head-to-toe in body paint. He was immediately intrigued by the art form,but his research failed to turn up any major events that showcased the medium. So , in 1998, he decided to stage the self-proclaimed first ever body painting festival of Europe.
+
+​	Two decades later, body painters from over 50 countries will meet in the south Austrian on July 12. This year, participants will compete in 12 categories ranging from brush and sponge, airbrushing, and team body painting to special effects makeup and installation art. The event will also include a music festival, food market, and a week of workshops before the main competition weekend begins.
+
+​	I think transformation was always something human, transformation of the body decoration, Barendregt told National Geographic . You can express really good feelings ,colors, emotions in an art form that is also moving and screaming and dancing.
+
+
+
